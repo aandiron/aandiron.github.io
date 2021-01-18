@@ -1,18 +1,9 @@
 README.md
-Last modified: Fri Jan 08, 2021  10:49PM
+Last modified: Mon Jan 18, 2021  02:26PM
 
-# The Trap (working title)
+# A. Andiron Github Pages
 * By A. Andiron
-
-## How to read it:
-* Available to read on Literotica:
-	* (eventually)
-* Or, compile from this source code using latex.
-	* (Or just read the markdown, available in source.) 
-
-## Compilation notes:
-* Use pandoc to compile .md into whatever format you like.
-* -medium version is adapted slightly for posting to Medium.
+http://aandiron.github.io/
 
 ## License:
 * Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
