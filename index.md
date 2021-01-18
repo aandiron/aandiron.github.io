@@ -1,4 +1,6 @@
-
+---
+layout: home
+---
 
 ## Stories available in corporate formats on:
 * [Amazon](https://www.amazon.com/s?i=digital-text&rh=p_27%3AA.+Andiron)
