@@ -1,6 +1,4 @@
 
-# The Stories of A. Andiron
-_Weird Erotica_
 
 ## Support this project
 * You can support this project by purchasing an ebook:
