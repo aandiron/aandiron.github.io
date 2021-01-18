@@ -1,3 +1,6 @@
+
+# About A. Andiron
+
 Alan Moore once said "Art is, like magic, the science of manipulating symbols, words or images, to achieve changes in consciousness... Indeed to cast a spell is simply to spell, to manipulate words, to change people's consciousness, and this is why I believe that an artist or writer is the closest thing in the contemporary world to a shaman."
 
 I'm just here trying to successfully execute some magic.
