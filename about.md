@@ -5,14 +5,16 @@ title: About
 
 Alan Moore once said "Art is, like magic, the science of manipulating symbols, words or images, to achieve changes in consciousness... Indeed to cast a spell is simply to spell, to manipulate words, to change people's consciousness, and this is why I believe that an artist or writer is the closest thing in the contemporary world to a shaman."
 
-I'm just here trying to successfully execute some magic.
+I'm just trying to successfully execute some magic.
 
-If you like what you've read, there's more stories on Amazon:
+But tapping into the shamanistic aspects of writing is extremely challenging. I can't say I love every one of these stories. Nor that they come close to magic. Most, I think, are essentially attempts to cast spells that have misfired. Still, each story that reaches completion has some stuff in it that expresses something a little magical, like a spell that went poof instead of doing what it was supposed to.
 
-https://www.amazon.com/s?i=digital-text&rh=p_27%3AA.+Andiron
+These stories also generally attempt to go somewhere that others haven't. There's really weird monsters, interspecies shenanigans, bent realities, and some uncalled-for violence. Writing in general seems to be locked into a specific aesthetic style. I keep asking myself: If the band Motörhead -- who had a very distinctive and immediately recognizable sound -- were a short story, what would it read like? Certainly not like any of this dull writing style that is taught in universities and pushed by the literate powers that be.
 
-If you REALLY like what you read, think about throwing a few dollars after an e-book. If everyone reading this right now paid $3, I would have like $9. But it would only take 10,000 people paying $3 for me to make a living doing this. (Yes I could live on that.) There probably are 10,000 people out of the 7 billion in the world who would be willing to pay that.
+If I ever manage to successfully cast a spell with these stories, the reader will be left with the feeling that they had a bunch of filthy hirsute metalheads wearing stinking long-unwashed leather tear through their bedrooms on motorcycles with illegal exhaust modifications. If that sounds like the erotica you always wanted but never had, then get following me, because I might not be there yet, but that's where I want to go.
 
-It could be you! If you support my creative project, I'll support yours! !end me your link. It could turn into a some kind of whole creative-go-around system.
+- A. Andiron
 
-I have some notion that I should keep a mailing list. Email me to be added: a.andiron@protonmail.com. Fear not the spam. This list isn't some vast database of contacts, it's more like a friends-and-family thing. Besides, my productivity is so low, you'll probably wish to see more emails from me, not fewer. Or just follow me on here, I suppose.
+
+
+
