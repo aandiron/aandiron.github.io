@@ -1,11 +1,7 @@
----
-layout: post
-title: About
----
 
 Alan Moore once said "Art is, like magic, the science of manipulating symbols, words or images, to achieve changes in consciousness... Indeed to cast a spell is simply to spell, to manipulate words, to change people's consciousness, and this is why I believe that an artist or writer is the closest thing in the contemporary world to a shaman."
 
-I'm just trying to successfully execute some magic.
+I'm just trying to successfully execute some magic by conjuring up some weird erotic stories.
 
 But tapping into the shamanistic aspects of writing is extremely challenging. I can't say I love every one of these stories. Nor that they come close to magic. Most, I think, are essentially attempts to cast spells that have misfired. Still, each story that reaches completion has some stuff in it that expresses something a little magical, like a spell that went poof instead of doing what it was supposed to.
 
