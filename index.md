@@ -1,5 +1,7 @@
-# The Stories of A. Andiron
-_Weird erotica for when you need monsters, heavy metal sex, and tortured metaphors in your bedroom._
+---
+layou: default
+---
+
 * [About this project](./about.md)
 
 ## Stories available in corporate formats
