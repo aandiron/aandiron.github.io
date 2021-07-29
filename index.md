@@ -13,6 +13,7 @@ This web page and the github repositories below are the source from which all ot
 
 ## Source code repositories for stories
 I believe in the power of open source. But while the power of open source has been shown over and over again for decades in software, there's still strong resistance to it in the arts. I want to be on the other side of that, so the 'source code' for all my stories (it's just markdown) are available as public github repositories under a Creative Commons license.
+* [Your Liquid Lips](https://github.com/aandiron/liquidlips)
 * [How the Mouse Takes the Cheese](https://github.com/aandiron/mousetrap)
 * [Erotica to Make Your Lover Wonder About You](https://github.com/aandiron/collected-stories)
 * [Tremble the Flowering Wood](https://github.com/aandiron/tremble)
@@ -24,7 +25,6 @@ I believe in the power of open source. But while the power of open source has be
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
-* [Liquid Lips](https://github.com/aandiron/liquidlips)
 * Unseen Horror
 * No words
 
