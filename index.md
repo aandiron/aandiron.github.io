@@ -24,6 +24,7 @@ I believe in the power of open source. But while the power of open source has be
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
+* [Liquid Lips](https://github.com/aandiron/liquidlips)
 * Unseen Horror
 * No words
 
