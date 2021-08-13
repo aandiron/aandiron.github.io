@@ -2,8 +2,8 @@
 layout: default
 ---
 
-## A two-hash title with a date
-2021-08-13
+2021-08-13 16:27:14
+# A two-hash title with a date
 
 This is test post text.
 
