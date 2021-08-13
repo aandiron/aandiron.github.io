@@ -1,5 +1,5 @@
 ---
-layou: default
+layout: default
 ---
 
 * [About this project](./about.md)
@@ -22,6 +22,9 @@ I believe in the power of open source. But while the power of open source has be
 * [Kraken](https://github.com/aandiron/kraken)
 * [Chinese Finger Trap](https://github.com/aandiron/chinese-finger-trap)
 * [Arrival](https://github.com/aandiron/arrival)
+
+### Some posts to read
+* [Check out posts](_posts/)
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
