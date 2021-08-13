@@ -24,7 +24,7 @@ I believe in the power of open source. But while the power of open source has be
 * [Arrival](https://github.com/aandiron/arrival)
 
 ### Some posts to read
-* [Check out posts](_posts/)
+* [Check out posts](_posts/posts)
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
