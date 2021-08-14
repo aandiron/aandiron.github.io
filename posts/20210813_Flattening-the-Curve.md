@@ -3,6 +3,7 @@ layout: default
 ---
 
 2021-08-13 16:27:14
+
 # Flattening the Curve
 
 I was thinking earlier about how a beautiful woman like yourself presents herself to the world wrapped in these perfect unmarred curves.
