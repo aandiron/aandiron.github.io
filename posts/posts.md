@@ -6,4 +6,5 @@ layout: default
 Short written pieces and less developed bits.
 * [Flattening the Curve](20210813_Flattening-the-Curve.md)
 * [Slug Sex](20210814_slug-sex.md)
+* [Whale Sex](20210815_Whale-Sex.md)
 
