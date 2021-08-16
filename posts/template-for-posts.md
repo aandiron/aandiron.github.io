@@ -13,5 +13,6 @@ Order for creating a post:
 4. Git _add_ and commit new post file. Push to github. Check github pages site to make sure you didn't forget anything.
 5. Open new post file with local editor. Copy and paste into https://m2m.pqsec.org/. Add integration token from stored passwords.
 6. Log into medium (through email, so log into email too). Check and publish story.
+7. Add to appropriate lists on Medium.
 
 
