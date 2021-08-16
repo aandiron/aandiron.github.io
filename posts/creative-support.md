@@ -20,7 +20,7 @@ Let's use Medium as an example. Having a Medium account allows you to follow aut
 
 A robust mailing list makes a creator a free agent. Someone with a large mailing list (read: fan base) can take that list with them to a book publisher or a record label along with their new work and say, "look, if you publish me, we can instantly tell all these people the work is out, and where to find it." In marketing terms, the creator with a mailing list has their own marketing slice pre-made for their work. For a publisher or a record label, creating that slice _is_ one of the single most expensive things they would have to pay for if they sign a new author or band. And they certainly don't want to give power over it to the artist.
 
-That's why you should.
+That's why you should. Many creators have started to realize the significance of controlling their own email list, hence the growing popularity of [that site]. But even for creators who think it's all about followers on tiktok and haven't yet realized the power controlling their own email list gives them, you are still _giving_ them that power by signing up for their possibly little-used email list.
 
 But what about spam!? You say.
 
