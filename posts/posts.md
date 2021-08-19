@@ -10,6 +10,7 @@ Short written pieces and less developed bits.
 * [More Whale Sex](20210816_Whale-Sex-2.md)
 * [Pornographic Pictures With G-Rated Descriptions](20210817_porn-vs-text.md)
 * [Under the Desert Sky](20210818_under-the-desert-sky.md)
+* ["Fuck My Face!"](20210819_fuck-my-face.md)
 
 * [The Most Important Thing You Can do to Support a Writer](creative-support.md)
 
