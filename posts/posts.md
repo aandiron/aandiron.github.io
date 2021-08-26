@@ -15,6 +15,7 @@ Short written pieces and less developed bits.
 * [Origami](20210822_origami.md)
 * [Election Night](20210823_Election-Night.md)
 * [ridiculousawesomeartrockmusicvideoporn](20210824_adanowsky.md)
+* [Female Hyenas and Their Pseudopenises](20210825-Female_Hyenas.md)
 
 * [The Most Important Thing You Can do to Support a Writer](creative-support.md)
 
