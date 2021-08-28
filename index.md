@@ -13,6 +13,7 @@ This web page and the github repositories below are the source from which all ot
 
 ## Source code repositories for stories
 The 'source code' for all my stories (it's just markdown) are available as public github repositories under a Creative Commons license.
+* [How to Make a Whore](https://github.com/aandiron/mentalho)
 * [Your Liquid Lips](https://github.com/aandiron/liquidlips)
 * [How the Mouse Takes the Cheese](https://github.com/aandiron/mousetrap)
 * [Erotica to Make Your Lover Wonder About You](https://github.com/aandiron/collected-stories)
