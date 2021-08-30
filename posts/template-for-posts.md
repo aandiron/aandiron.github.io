@@ -2,9 +2,9 @@
 layout: default
 ---
 
-2021-08-13 16:27:14
+:r! date +"\%Y-\%m-\%d \%H:\%M:\%S"
 
-# A two-hash title with a date
+# A headline title
 
 Order for creating a post:
 1. In github repo, edit posts.md file. Add link for new post with appropriate file name. Select it to open new postfile.
