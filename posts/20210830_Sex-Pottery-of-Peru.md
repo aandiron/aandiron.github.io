@@ -9,6 +9,8 @@ layout: default
 
 Ancient Peruvians knew how to make stone-cold porn:
 
+![](./Moche-ceramics-contain-phallic-spouts.jpg "Phallic spouts")
+
 [Moche Ceramics Shed Light on Ancient Sexuality](https://www.ancient-origins.net/artifacts-other-artifacts/sex-pottery-peru-moche-ceramics-shed-light-ancient-sexuality-003017").
 
 
