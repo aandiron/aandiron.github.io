@@ -39,6 +39,9 @@ If you like what you read, think about throwing a few dollars after an e-book. I
 	* [Amazon Kindle](https://www.amazon.com/s?i=digital-text&rh=p_27%3AA.+Andiron)
 
 ## Mailing list
+
+* [The Most Important Thing You Can do to Support a Writer](creative-support.md)
+
 You might have never thought about how important a mailing list is to a writer. All other forms of 'following' on social media platforms leave a writer or artist with no control or ownership of their fanbase. A mailing list lets the creator of works keep their fans no matter what future tech brings. It frees the writer from coporations that own the 'followers' on their platforms.
 
 If you like a writer, artist, or band the best thing you can do is buy them a t-shirt (t-shirts are almost all profit --- no, I don't have any to sell). The second-best thing you can do is get on their mailing list. Fear not the spam. My list isn't some vast database of contacts, it's more like a friends-and-family thing. Besides, my productivity is so low, you'll probably wish to see more emails from me, not fewer. 

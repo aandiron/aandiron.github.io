@@ -19,6 +19,5 @@ Short written pieces and less developed bits.
 * [Sex Pottery of Peru](20210830_Sex-Pottery-of-Peru.md)
 * [When Alan Moore Writes a Sex Scene](20200831_Moore-Jerusalem-sex.md)
 
-* [The Most Important Thing You Can do to Support a Writer](creative-support.md)
 
 

@@ -8,9 +8,7 @@ layout: default
 
 # When Alan Moore Writes a Sex Scene
 
-It's going to be pan-temporal, pan-dimensional, and it's going to be about ghosts having sex.
-
-(From [Jerusalem](https://theanarchistlibrary.org/library/alan-moore-jerusalem))
+_It's going to be pan-temporal, pan-dimensional, and it's going to be about ghosts having sex. (From [Jerusalem](https://theanarchistlibrary.org/library/alan-moore-jerusalem))_
 
 
 “Fred! Freddy Allen! Over here!”
