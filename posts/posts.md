@@ -19,7 +19,7 @@ Short written pieces and less developed bits.
 * [Sex Pottery of Peru](20210830_Sex-Pottery-of-Peru.md)
 * [When Alan Moore Writes a Sex Scene](20200831_Moore-Jerusalem-sex.md)
 * [Everyone is Having Less Sex Than Everyone Thinks](20210907_not-much-sex.md)
-* [Sports Night Panties](Sports-Night_panties.mp4)
+* [Sports Night Panties test](Sports-Night_panties.mp4)
 
 
 
