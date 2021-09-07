@@ -18,6 +18,7 @@ Short written pieces and less developed bits.
 * [Female Hyenas and Their Pseudopenises](20210825-Female_Hyenas.md)
 * [Sex Pottery of Peru](20210830_Sex-Pottery-of-Peru.md)
 * [When Alan Moore Writes a Sex Scene](20200831_Moore-Jerusalem-sex.md)
+* [Everyone is Having Less Sex Than Everyone Thinks](20210907_not-much-sex.md)
 
 
 
