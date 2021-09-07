@@ -29,9 +29,9 @@ These are source code repositories for unfinished stories if you want to follow 
 * Unseen Horror
 * No words
 
-## Bits and pieces without source code
-These are various shorter and less-developed pieces that haven't merited their own repository.
-* [Short bits and pieces](posts/posts.md)
+## In which there is no 'source'
+* [Links](links/links.md): to interesting writing and other things by other people.
+* [Bits and Pieces](bits/bits-and-pieces.md): various shorter and less-developed pieces that haven't merited their own repository.
 
 ## Support this project
 If you like what you read, think about throwing a few dollars after an e-book. If everyone reading this right now paid $3, I would have like $9. But it would only take 10,000 people paying $3 for me to make a living doing this. (Yes I could live on that.) There probably are 10,000 people out of the 7 billion in the world who would be willing to pay that. It could be you! If you support my creative project, I'll support yours! Send me your link. It could turn into a some kind of whole creative-go-around system.
