@@ -5,7 +5,7 @@ layout: default
 * [About this project](./about.md)
 
 ## Stories available in corporate formats
-This web page and the github repositories below are the source from which all other A. Andiron postings flow. But if you want to read stories in their polished formats, seek them out on these sites:
+This web page and the github repositories below are the source from which all other A.Andiron postings flow. But if you want to read stories in their polished formats, seek them out on these sites:
 * [Medium](https://medium.com/@a.andiron)
 * [Amazon](https://www.amazon.com/s?i=digital-text&rh=p_27%3AA.+Andiron)
 * [Literotica](https://www.literotica.com/stories/memberpage.php?uid=5126158&page=submissions)
