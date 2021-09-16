@@ -11,6 +11,7 @@ Short written pieces and less developed bits.
 * ["Fuck My Face!"](20210819_fuck-my-face.md)
 * [Origami](20210822_origami.md)
 * [Election Night](20210823_Election-Night.md)
+* [Vegan Food](20210915_vegan-food.md)
 
 
 
