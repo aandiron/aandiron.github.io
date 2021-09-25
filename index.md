@@ -23,6 +23,7 @@ The 'source code' for all my stories (it's just markdown) are available as publi
 * [Kraken](https://github.com/aandiron/kraken)
 * [Chinese Finger Trap](https://github.com/aandiron/chinese-finger-trap)
 * [Arrival](https://github.com/aandiron/arrival)
+* [The Great Stone Dragon](https://github.com/aandiron/drive-in-dragon)
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
