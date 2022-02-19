@@ -1,5 +1,5 @@
 what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  11:03AM
+Last modified: Sat Feb 19, 2022  12:27PM
 
 
 2021-12-23 17:18:36
@@ -41,7 +41,7 @@ Last modified: Sat Feb 19, 2022  11:03AM
 
 ---I remember meeting up with you for a quick reunion a few years later. We were both seeing other people. We got some lunch. We flirted. I remember convincing you --- pressuring you really --- to come back to my parent's empty house and fuck me. I remember making out with you on the couch, you were extremely hesitant. You eventually relented I fucked you in the upstairs back bedroom. I explicitly remember cumming while fucking you from behind. Afterwards we were talking and I disclosed that I wasn't really in any kind of relationship anymore. You felt betrayed by me because you did have a serious boyfriend and we weren't fully sharing the guilt of having cheated. You accused me of taking advantage of you. Of thinking with my dick. I felt terrible about that. But I have always treasured that scene of illicit passion with you. My father's neighbor saw you leave and asked me who you were. I said, "an old friend." He said, "she doesn't look that old to me!"
 
----I remember meeting up with you and your boyfriend years later at a bar in the city after you had your first kid. I remember being jealous of how hot you were. I remember catching a glimps of your panties above the waistline of your jeans when you bent over to shoot pool, or something like that.
+---I remember meeting up with you and your boyfriend years later at a bar in the city after you had your first kid. I remember being jealous of how hot you were. I remember catching a glimps of your panties (they had cherries printed on them) above the waistline of your jeans when you bent over to shoot pool, or something like that.
 
 ---I remember being on a brutally long hot hike in the mountains by myself, and I distracted myself from the misery by daydreaming for hours about fucking you --- driven by a vague kinky fantasy that I had been the one to get you pregnant. I never told you about that.
 
