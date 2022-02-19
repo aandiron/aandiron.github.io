@@ -1,11 +1,8 @@
-what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  12:44PM
+what-I-remember-about-you.md
 
 
-2021-12-23 17:18:36
 
-...in vaguely chronological order
-
+# What I remember about you
 
 ---I remember you telling me about truck drivers getting boners that wouldn't go away and had to be pierced with a needle.
 
@@ -35,21 +32,22 @@ Last modified: Sat Feb 19, 2022  12:44PM
 
 ---I remember fucking you in the car at the drive in during Disney's Mulan. Well, I don't remember the fucking, (I wish I did). I just remember I never saw the movie. And I remember dropping the used condom on the ground outside the car, and feeling bad about it. But also transgressive-dirty-hot.
 
----I remember you gave me amazing blowjobs. I'm fairly certain they were the best I ever had. But I don't remember any specific instance or details. I also remember that you were a great kisser, with those beautiful full lips. But I don't remember any specific instance or details of that either.
+---I remember you gave me amazing blow-jobs. I'm fairly certain they were the best I ever had. But I don't remember any specific instance or details. I also remember that you were a great kisser, with those beautiful full lips. But I don't remember any specific instance or details of that either.
 
 ---I remember being so excited that you were coming to visit me one weekend at college. But you never arrived.
 
 ---I remember meeting up with you for a quick reunion a few years later. We were both seeing other people. We got some lunch. We flirted. I remember convincing you --- pressuring you really --- to come back to my parent's empty house and fuck me. I remember making out with you on the couch, you were extremely hesitant. You eventually relented I fucked you in the upstairs back bedroom. I explicitly remember cumming while fucking you from behind. Afterwards we were talking and I disclosed that I wasn't really in any kind of relationship anymore. You felt betrayed by me because you did have a serious boyfriend and we weren't fully sharing the guilt of having cheated. You accused me of taking advantage of you. Of thinking with my dick. I felt terrible about that. But I have always treasured that scene of illicit passion with you. My father's neighbor saw you leave and asked me who you were. I said, "an old friend." He said, "she doesn't look that old to me!"
 
----I remember meeting up with you and your boyfriend years later at a bar in the city after you had your first kid. I remember being jealous of how hot you were. I remember catching a glimps of your panties (they had cherries printed on them) above the waistline of your jeans when you bent over to shoot pool, or something like that.
+---I remember meeting up with you and your boyfriend years later at a bar in the city after you had your first kid. I remember being jealous of how hot you were. I remember catching a glimpse of your panties (they had cherries printed on them) above the waistline of your jeans when you bent over to shoot pool, or something like that.
 
 ---I remember being on a brutally long hot hike in the mountains by myself, and I distracted myself from the misery by daydreaming for hours about fucking you --- driven by a vague kinky fantasy that I had been the one to get you pregnant. I never told you about that.
 
 ---I remember going to visit you and your boyfriend, and I stupidly missed the last train home. You graciously drove me back into the city.
 
----I remember going to visit you after your second kid, dragging along my girlfriend at the time. I rememmber a vauge wish the visit would turn into a hot threesome, but that was an impractical fantasy and of course it never happened. I remember someone got stung by a bee in your backyard. I think this was the last time I saw you in person. The greater part of our adult lives has passed since then.
+---I remember going to visit you after your second kid, dragging along my girlfriend at the time. I remember a vague wish the visit would turn into a hot threesome, but that was an impractical fantasy and of course it never happened. I remember someone got stung by a bee in your backyard. I think this was the last time I saw you in person. The greater part of our adult lives has passed since then.
 
 
 
+2022-02-19 17:41:32
 
 
