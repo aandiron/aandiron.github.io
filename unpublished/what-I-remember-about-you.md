@@ -4,8 +4,8 @@ layout: default
 
 
 # What I remember about you
-
----I remember you telling me about truck drivers getting boners that wouldn't go away and had to be pierced with a needle.
+  
+---The first memory I have of you is when I told you I might want to be a truck driver. You told me that some truck drivers get a boner that wouldn't go away, and had to be pierced with a needle to deflate them.
 
 ---I remember staying up all night with you, curled up against you in the bed. I remember not sleeping. I remember holding myself back from doing anything explicit, and at the same time grinding remorselessly against you. I remember having an unrepentant hard-on. I remember having blue-balls, and my balls aching desperately-aspirin-needing funny-walking painfully by morning. I remember watching you drive away from the window. And I remember jacking off in the bathroom and cumming so hard I spurt cum all over the toilet.
 
