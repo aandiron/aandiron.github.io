@@ -1,5 +1,5 @@
 what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  10:52AM
+Last modified: Sat Feb 19, 2022  11:03AM
 
 
 2021-12-23 17:18:36
@@ -39,15 +39,15 @@ Last modified: Sat Feb 19, 2022  10:52AM
 
 ---I remember being so excited that you were coming to visit me one weekend at college. But you never arrived.
 
-+ Meeting up with her in connecticut. flirting with her, pressuring her to fuck me even though she had a boyfriend. cumming while fucking her doggie style. Her being mad at me afterwards. But it was an experience I treasured ever after.
+---I remember meeting up with you for a quick reunion a few years later. We were both seeing other people. We got some lunch. We flirted. I remember convincing you --- pressuring you really --- to come back to my parent's empty house and fuck me. I remember making out with you on the couch, you were extremely hesitant. You eventually relented I fucked you in the upstairs back bedroom. I explicitly remember cumming while fucking you from behind. Afterwards we were talking and I disclosed that I wasn't really in any kind of relationship anymore. You felt betrayed by me because you did have a serious boyfriend and we weren't fully sharing the guilt of having cheated. You accused me of taking advantage of you. Of thinking with my dick. I felt terrible about that. But I have always treasured that scene of illicit passion with you. My father's neighbor saw you leave and asked me who you were. I said, "an old friend." He said, "she doesn't look that old to me!"
 
-+ meeting up with her years later after her first kid and thinking she was still hot. Catching a glimpse of her panties.
+---I remember meeting up with you and your boyfriend years later at a bar in the city after you had your first kid. I remember being jealous of how hot you were. I remember catching a glimps of your panties above the waistline of your jeans when you bent over to shoot pool, or something like that.
 
 ---I remember being on a brutally long hot hike in the mountains by myself, and I distracted myself from the misery by daydreaming for hours about fucking you --- driven by a vague kinky fantasy that I had been the one to get you pregnant. I never told you about that.
 
-+ Going to visit her and missing the last train back. Having to get a ride into the city, which you were so gracious about.
+---I remember going to visit you and your boyfriend, and I stupidly missed the last train home. You graciously drove me back into the city.
 
-+ Going to visit her after her second kid with my girlfriend at the time. A vauge wish it would turn into a hot threesome, but that was an impractical fantasy and of course it never happened. Someone got stung by a bee. I think this was the last time I saw you in person. The greater part of our adult lives has passed since then.
+---I remember going to visit you after your second kid, dragging along my girlfriend at the time. I rememmber a vauge wish the visit would turn into a hot threesome, but that was an impractical fantasy and of course it never happened. I remember someone got stung by a bee in your backyard. I think this was the last time I saw you in person. The greater part of our adult lives has passed since then.
 
 
 
