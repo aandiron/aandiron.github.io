@@ -1,5 +1,5 @@
 what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  12:27PM
+Last modified: Sat Feb 19, 2022  12:44PM
 
 
 2021-12-23 17:18:36
@@ -11,7 +11,7 @@ Last modified: Sat Feb 19, 2022  12:27PM
 
 ---I remember staying up all night with you, curled up against you in the bed. I remember not sleeping. I remember holding myself back from doing anything explicit, and at the same time grinding remorselessly against you. I remember having an unrepentant hard-on. I remember having blue-balls, and my balls aching desperately-aspirin-needing funny-walking painfully by morning. I remember watching you drive away from the window. And I remember jacking off in the bathroom and cumming so hard I spurt cum all over the toilet.
 
----I remember your pretty eyes when you looked at me after the metal show and thanked me for watching out for you, for keeping you from tripping on the stairs. I remember sleeping next to you that night on the floor in the basement room with all our friends. You were annoyed at me the next morning for trying to feel you up. 
+---I remember your pretty eyes when you looked up at me after the Type O Negative show and thanked me for watching out for you, for keeping you from tripping on the stairs. I remember sleeping next to you that night on the floor in the basement room with all our friends. You were annoyed at me the next morning for trying to feel you up. 
 
 ---I remember you unzipping my pants and taking hold of my hard cock in your warm little hand while I was driving us home in your small red car, with your friend asleep in the back seat.
 
