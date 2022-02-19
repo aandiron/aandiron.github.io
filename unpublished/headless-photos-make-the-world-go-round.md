@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 
 # Headless Photos Make the World Go 'Round
 
