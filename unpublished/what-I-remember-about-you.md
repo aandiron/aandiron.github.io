@@ -1,5 +1,5 @@
 what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  10:38AM
+Last modified: Sat Feb 19, 2022  10:52AM
 
 
 2021-12-23 17:18:36
@@ -38,6 +38,18 @@ Last modified: Sat Feb 19, 2022  10:38AM
 ---I remember you gave me amazing blowjobs. I'm fairly certain they were the best I ever had. But I don't remember any specific instance or details. I also remember that you were a great kisser, with those beautiful full lips. But I don't remember any specific instance or details of that either.
 
 ---I remember being so excited that you were coming to visit me one weekend at college. But you never arrived.
+
++ Meeting up with her in connecticut. flirting with her, pressuring her to fuck me even though she had a boyfriend. cumming while fucking her doggie style. Her being mad at me afterwards. But it was an experience I treasured ever after.
+
++ meeting up with her years later after her first kid and thinking she was still hot. Catching a glimpse of her panties.
+
+---I remember being on a brutally long hot hike in the mountains by myself, and I distracted myself from the misery by daydreaming for hours about fucking you --- driven by a vague kinky fantasy that I had been the one to get you pregnant. I never told you about that.
+
++ Going to visit her and missing the last train back. Having to get a ride into the city, which you were so gracious about.
+
++ Going to visit her after her second kid with my girlfriend at the time. A vauge wish it would turn into a hot threesome, but that was an impractical fantasy and of course it never happened. Someone got stung by a bee. I think this was the last time I saw you in person. The greater part of our adult lives has passed since then.
+
+
 
 
 
