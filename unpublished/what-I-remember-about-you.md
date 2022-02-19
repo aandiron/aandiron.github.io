@@ -1,5 +1,5 @@
 what-I-remember-about-Kat.md
-Last modified: Sat Feb 19, 2022  10:31AM
+Last modified: Sat Feb 19, 2022  10:38AM
 
 
 2021-12-23 17:18:36
@@ -24,6 +24,8 @@ Last modified: Sat Feb 19, 2022  10:31AM
 ---I remember you asking me to role play raping you. I remember holding your wrists against the bed, your weak attempts to push back, forcing your legs apart, forcing my cock up your pussy. I also remember afterwards you told me it was a scary experience.
 
 ---I remember arguing with you about some incredibly stupid point while driving through some awful suburban mall parking lot. I have no memory of what we argued about.
+
+---I remember going out to dinner at some fancy restaurant with your parents. You wore a short purple dress that showed off every perfect curve you had. I loved looking at you in that dress. I ordered a lobster tail. I think someone filmed the waiters placing the food in front of us.
 
 ---I remember going to the beach with you, and pointing out to you that one of your small pretty tits had escaped your bikini top.
 
