@@ -3,9 +3,6 @@ layout: default
 ---
 
 
-the-turn-of-the-screw.md
-Last modified: Sat Feb 19, 2022  05:47PM
-
 # The Turn of the Screw
 (With apologies to Henry James.)
 
