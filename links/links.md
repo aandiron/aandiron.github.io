@@ -15,6 +15,14 @@ Links to interesting writing and other things by other people.
 * [Everyone is Having Less Sex Than Everyone Thinks](20210907_not-much-sex.md)
 * [When Alan Moore Writes About a Mermaid](20210919_Moore-Jerusalem-mermaid.md)
 * [Sports Night Panties test](Sports-Night_panties.mp4)
+ 
+ 
+## Un-annotated links
+* https://www.youtube.com/watch?v=f20Oz9Yr_So
+* https://nypost.com/2021/09/23/gorillas-shock-onlookers-with-oral-sex-at-bronx-zoo-video/amp/
+* https://www.nytimes.com/2022/05/02/science/dolphins-anaconda-bolivia.html
+* https://www.nytimes.com/2022/05/03/science/venom-medicines.html
+	* (See paragraph on venom resulting in a hard-on)
 
 
 
