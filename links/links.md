@@ -25,6 +25,7 @@ Links to interesting writing and other things by other people.
 	* (See paragraph on venom resulting in a hard-on)
 * https://web.archive.org/web/20010201072400/http://www.dolphinsex.org/
 * https://www.nytimes.com/2022/05/27/science/cockroach-sugar-sex.html 
+* https://www.nytimes.com/2020/04/24/opinion/sunday/covid-nude-selfies.html
 
 
 
