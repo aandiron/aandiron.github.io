@@ -18,6 +18,8 @@ Links to interesting writing and other things by other people.
  
  
 ## Un-annotated links
+* https://www.smithsonianmag.com/science-nature/why-have-female-animals-evolved-such-wild-genitals-180979813/
+* https://www.theparisreview.org/blog/2018/02/02/james-joyces-love-letters-dirty-little-fuckbird/
 * https://www.youtube.com/watch?v=f20Oz9Yr_So
 * https://nypost.com/2021/09/23/gorillas-shock-onlookers-with-oral-sex-at-bronx-zoo-video/amp/
 * https://www.nytimes.com/2022/05/02/science/dolphins-anaconda-bolivia.html
