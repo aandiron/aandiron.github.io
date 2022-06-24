@@ -39,14 +39,6 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $30 - beautiful lips wrapped around a tentacle
 
-* [ ] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
-
-* [ ] $50 - you standing naked astride your motorcycle (boots optional)
-
-* [ ] $50 - your face covered in cum (with or without glasses)
-
-* [ ] $50 - Tight shirt, no bra, nipples showing; in panties
-
 * [ ] $30 - full body, with just your panties on
 
 * [ ] $35 - perfect ass in a thong pic
@@ -55,9 +47,17 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $40 - you heavily pregnant and naked (price adjusted based on hotness)
 
-* [ ] $60 - Perfect ass pic -- bent over and showing some pretty pussy
+* [ ] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
+
+* [ ] $50 - you standing naked astride your motorcycle (boots optional)
+
+* [ ] $50 - your face covered in cum (with or without glasses)
+
+* [ ] $50 - Tight shirt, no bra, nipples showing; in panties
 
 * [ ] $50 - Sitting on your desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
+
+* [ ] $60 - Perfect ass pic -- bent over and showing some pretty pussy
 
 * [ ] $60 - you naked in the bath (from your own perspective maybe?)
 
