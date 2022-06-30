@@ -28,6 +28,8 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $30 - full body wearing something lacey and see-through
 
+* [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
+
 * [ ] $50 - standing naked astride your motorcycle (boots optional)
 
 * [ ] $50 - your face covered in cum (with or without glasses)
@@ -103,7 +105,7 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [X] $40 - Perfect ass pic
 
-* [X] $40 - you heavily pregnant and naked (price adjusted based on hotness)
+* [X] $40 - you heavily pregnant and naked
 
 * [X] $60 - Perfect ass pic -- bent over and showing some pretty pussy
 
@@ -114,8 +116,6 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 * [X] $30 - read something I wrote, get soaking wet, make yourself cum
 
 * [X] $30 - make yourself cum thinking about me (no pics or proof required; $10 bonus if you make yourself squirt!)
-
-* [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
 
 * [X] $300 - NAKED video of you slowly stripping until you are touching your pussy and masturbating. ~10 minutes of content.
 
