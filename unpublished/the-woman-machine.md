@@ -5,7 +5,8 @@ layout: default
 # The Woman-Machine
 A motorcycle is a girl's best friend.
 
-
+  
+  
 "Your bike out there... single cylinder? What is it... 400ccs?"
 
 "500."
@@ -68,10 +69,39 @@ The prospect of possible future-sex with me apparently instantly repaired his cr
 
 I threw my leg over my bike, thus undoing the gains of the scooching maneuver on my skirt that I had executed moments before. Mostly, I didn't ride in skirts, because mostly it was way too cold. Even an otherwise mild night could get chilly on a motorcycle quickly, and the breeze blowing over nylons and up my skirt was something that was only comfortable on downright warm nights, as this one was.
 
-I did love the way my short black skirt looked on my bike when paired with the vintage brown leather motorcycle boots.[she puts on her heavy plaid jacket, and helmet that tints her face --- no helmet law, but she's a mother for chrissake]
+I did love the way my short black skirt looked on my bike when paired with the vintage brown leather motorcycle boots. It was night time, so there wasn't anyone around to appreciate it, but I looked fucking amazing on my bike. I have this tough but shapely yellow-and-black plaid jacket with a high collar that collaborated nicely with the short black skirt. And a 3/4s helmet with a amber-tinted full-face shield. There's no helmet law in my state, but I'm a mother for fuck's sake!
 
-I hooked the left heel of my boot onto the peg.
+I pulled my gloves on, before I hooked the heel of my boot onto the right-side peg. I turned on the fuel and turned the key in its slot to engage the electrical system. My bike has a kick-start, but... not with a skirt. I pushed the starter button and the bike succumbed to the electrical jolt and shook to life like Frankenstein's monster back from the icy dead.
 
+Up with the side-stand, twist of the throttle, and I ripped out of the parking lot, down the street through the quiet, run-down residential neighborhood a bit faster than was really appropriate. The bike shook between my legs like an excited puppy, its one big cylinder thumping away. I found the on-ramp to the highway and twisted the throttle all the way to the stop, popping through the gears until I was spinning down the empty four-lane with the wind pressing hard up against my whole body.
+
+Maintaining a steady pace, wrapped in the surreal sensory white-wash that came with riding a motorcycle at speed, my mind began to wander. I couldn't help but think about the guy in the bar. I wasn't just teasing him, I swear. I really did want to fuck him. I'm sure it was not long after I left that he discovered the damp spot on his jeans where my pussy had rubbed against him. I really didn't want to cheat on my husband though. Or maybe I did. But if I did, I was sure I wanted it to be something more than just a quick fling, more than just some hot guy I picked up in a bar.
+
+Still, I doubted my own approach. Maybe I should have gone for it. I though about what could have happened. I could have led him out to the parking lot to show him my bike. And out in those cross-lit shadows I could have stepped over it and offered to take him for a quick spin --- to show him what that little thumper engine could do. And then when he stepped onto the pegs behind me, I could have hesitated, balancing the bike between my legs, stretching my shoulders back, pressing my body back against him.
+
+He might have asked if we were going to go, and I would have responded by moving my hips back towards him. His hands would have come forward and lay on the tops of my thighs, and slid his palms upward, sliding the hem of my skirt up, until he was lifting it up over my ass. And at that point his doubts would have dissipated because I would have leaned forward, until my breasts were nearly resting on the rise of the fuel tank, and my hips would have come up. His hand would come between my legs and feel me wet and waiting. Out would come his cock, his feet returned to the ground, and he would have slipped into me like that from behind, fucking me hard while I was splayed out over my sweet motorcycle.
+
+This is the image going through my mind while my bike hummed between my legs. I could feel my pussy getting wetter and wetter, my soaked panties cooled by the pressing breeze up my skirt. I shifted my weight, bringing my chest forward and pressing my clit down on the shaking vinyl seat and a wave of electric-driven pleasure passed up my spine.
+
+Now, what I haven't told you yet is that my bike is special. I mentioned earlier that it takes care of me, and maybe you read the intended subtext in that. But I don't just ride my bike, I work on it too. And I had carefully tuned it to vibrate at exactly the frequencies I liked. Nobody knew this, not even my husband, but I rode my motorcycle so often not for only for the unimpeachable pleasure of pure motorcycling that every rider knows --- "the most fun you can have as an adult" I had often said, and do honestly believe --- but also for the more explicit pleasure that my motorcycle makes me cum. It makes me cum in a way that no man (or woman) ever did. This kind of thing was an undoubtedly incredibly dangerous activity. Honestly, the danger just makes it even better. In many ways, my motorcycle was my favorite lover.
+
+And the image of that guy in the bar fucking me while we stood over my bike, while it was definitely hot, kind of also felt *wrong*. Like I was cheating on my most precious lover, teasing it by getting fucked while it was right under me, under my open legs, but not taking part.
+
+I resolved to correct that wrong immediately. I took my hand gloved left hand from the grip and patted the tank softly before unzipping my jacket and slipping my hand inside, up under my blouse and onto my breast. The night air forced its way into the jacket along with my hand and both found my nipple and danced around it, the air mixing its tough with the rough cracked leather of my glove on one of the most sensitive places on my body.
+
+I had to hold my right hand steady on the throttle to maintain speed --- and the frequency of vibrating bike, but I started moving the rest of my body. I rolled my hips back and forth, pressing my clit hard down against the tense hum of the seat. I leaned forward slightly and the pressed night wind found a new slit to drive itself down, cool and damp in the space between my warm breasts.
+
+I started softly moaning, then louder and louder as my orgasm slowly built. I let it all out --- no matter how loud I was, the world on my bike belonged to me and I could shout my orgasm to the clear stars across the black dome above me if I liked to. I gripped my knees against the side of the fuel tank. I'm not afraid to tell you: i fucked my machine lover.
+
+But anyone who rides motorcycles knows that they can both deliver a rush unlike anything else, and also overwhelm your senses and leave you in a sort of sensory-deprived state. I think I had waited too long, because while my bike was doing nice work on my clit, my orgasm was slipping off away and hiding somewhere. I needed a bit of a change.
+
+I sat upright, taking the blast of air full on my torso, and shifted my hips forward. I pressed my clit --- protected only by the nylons and the thin cotton of my panties --- up against the cold steel of the fuel tank. Here the vibrations were far more intense. But I needed a change in frequency too. With the tip of my toe I popped the gear down to 4th and opened the throttle. The tachometer needle leaped, and the bike screamed like it was experiencing it's own orgasm. The speedo crept up past the 90 mark --- something that bike could only do with the slight weight of a smaller person like a female rider, a big burly man would hold this bike down.
+
+That did it.
+
+I rolled my hips forward and held them hard against the powerful quake of the fuel tank as I started to cum. My breath was knocked out of me, and the edges of my vision glowed dangerously white. The frequency of the shaking in my body seemed to match that of the big pounding cylinder buried deep in the engine. My body melded with the machine and I transitioned to something super human. Or maybe pseudo-human as a greasy, churning, exploding orgasm shook upwards from that cylinder, through the steel of the bike into my body and up my spine.
+
+Finally I gasped in a long draft of the night air, and my vision cleared. And my mind cleared too. In that clarity I knew I didn't need some hot guy from a bar, or even my husband. The only lover I needed was that motorcycle.
 
 
 
