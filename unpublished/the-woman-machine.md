@@ -3,10 +3,10 @@ layout: default
 ---
 
 # The Woman-Machine
-A motorcycle is a girl's best friend.
+*A motorcycle is a girl's best friend.*
 
-  
-  
+----------------------------------------
+
 "Your bike out there... single cylinder? What is it... 400ccs?"
 
 "500."
