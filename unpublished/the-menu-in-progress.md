@@ -48,7 +48,6 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $75 - naked in front of a mirror --- so I can see both sides at once. 
 
-:tentacles:
 * [ ] $30 - **beautiful lips wrapped around a tentacle**
 
 * [ ] $100 - **pic of you fucking a tentacle**
