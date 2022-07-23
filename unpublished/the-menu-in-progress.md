@@ -26,7 +26,11 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $25 - spill something goopy on your beautiful tits
 
+* [ ] $25 - **your tits pressed up against glass**
+
 * [ ] $30 - full body wearing something lacey and see-through
+
+* [ ] $30 - **beautiful lips wrapped around a tentacle**
 
 * [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
 
@@ -34,9 +38,7 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $50 - your face covered in cum (with or without glasses)
 
-* [ ] $50 - **Tight shirt, no bra, nipples showing; in panties**
-
-* [ ] $100 - **Tight shirt, no bra, nipples showing; panties down around knees**
+* [ ] $50 - Tight shirt, no bra, nipples showing; in panties
 
 * [ ] $50 - Sitting on desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
 
@@ -48,7 +50,9 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $75 - naked in front of a mirror --- so I can see both sides at once. 
 
-* [ ] $30 - **beautiful lips wrapped around a tentacle**
+* [ ] $100 - **your ass up against glass, so I can see your pussy**
+
+* [ ] $100 - Tight shirt, no bra, nipples showing; panties down around knees
 
 * [ ] $100 - **pic of you fucking a tentacle**
 
