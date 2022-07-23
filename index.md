@@ -13,6 +13,10 @@ This web page and the github repositories below are the source from which all ot
 
 ## Source code repositories for stories
 The 'source code' for all my stories (it's just markdown) are available as public github repositories under a Creative Commons license.
+* [The Woman-Machine](https://github.com/aandiron/woman-machine)
+* [The Architect](https://github.com/aandiron/architect/)
+* [Along The Border](https://github.com/aandiron/border)
+* [The Great Stone Dragon](https://github.com/aandiron/drive-in-dragon)
 * [How to Make a Whore](https://github.com/aandiron/mentalho)
 * [Your Liquid Lips](https://github.com/aandiron/liquidlips)
 * [How the Mouse Takes the Cheese](https://github.com/aandiron/mousetrap)
@@ -23,7 +27,6 @@ The 'source code' for all my stories (it's just markdown) are available as publi
 * [Kraken](https://github.com/aandiron/kraken)
 * [Chinese Finger Trap](https://github.com/aandiron/chinese-finger-trap)
 * [Arrival](https://github.com/aandiron/arrival)
-* [The Great Stone Dragon](https://github.com/aandiron/drive-in-dragon)
 
 ### Stories under development
 These are source code repositories for unfinished stories if you want to follow them during development.
