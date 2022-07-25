@@ -34,7 +34,7 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
 
-* [ ] $50 - standing naked astride your motorcycle (boots optional)
+* [X] $50 - standing naked astride your motorcycle (boots optional)
 
 * [ ] $50 - your face covered in cum (with or without glasses)
 
