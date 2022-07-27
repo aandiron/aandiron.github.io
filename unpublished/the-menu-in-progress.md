@@ -30,7 +30,7 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $30 - full body wearing something lacey and see-through
 
-* [ ] $30 - **beautiful lips wrapped around a tentacle**
+* [ ] $30 - **Two-lips-o-dildo: beautiful lips wrapped around a tentacle**
 
 * [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
 
