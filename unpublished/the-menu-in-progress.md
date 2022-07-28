@@ -28,6 +28,8 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $25 - **your tits pressed up against glass**
 
+* [ ] $30 - **tentacle pressed between your tits ala a good titty fucking**
+
 * [ ] $30 - full body wearing something lacey and see-through
 
 * [ ] $30 - **Two-lips-o-dildo: beautiful lips wrapped around a tentacle**
