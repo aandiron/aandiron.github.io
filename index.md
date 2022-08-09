@@ -13,7 +13,7 @@ This web page and the github repositories below are the source from which all ot
 
 ## Source code repositories for stories
 The 'source code' for all my stories (it's just markdown) are available as public github repositories under a Creative Commons license.
-* [The Woman-Machine](https://github.com/aandiron/woman-machine)
+* [The Woman-Machine](https://github.com/aandiron/woman-machine) (And it's sister piece: The Man-Machine)
 * [The Architect](https://github.com/aandiron/architect/)
 * [Along The Border](https://github.com/aandiron/border)
 * [The Great Stone Dragon](https://github.com/aandiron/drive-in-dragon)
