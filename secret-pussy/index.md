@@ -20,6 +20,9 @@ layout: default
 
 ## Images
 
+2022-08-23  
+![Demon raper](./demon-horn.jpg "Because I'm evil. Let loose upon the world. Let loose upon your naked body.")
+
 2022-08-22 13:45:37  
 ![Eating vampire pussy](./eatin-vamp-woman.jpg "Let me under your evil skirts. I'll eat you back into heaven.")
 
