@@ -1,4 +1,8 @@
+---
+layout: default
+---
 
+# Monday Mornings
 
 
 Back when I worked at Harvard there was a professor named John

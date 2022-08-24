@@ -14,13 +14,18 @@ layout: default
 2022-08-22 13:45:37  
 [Don't Touch Me](dont-touch-me)
 
-[//]: # (Add Monday Mornings here)
+2021-08-23 12:21 PM  
+[Monday Mornings](monday-mornings)
+
 
 ----------------------------------------
 
 ## Images
 
-2022-08-23  
+2022-08-24 12:51:35  
+![Crotch Rocket](./crotch-rocket.jpg "Bend your cute ass over a motorcycle and let me ride you from behind, you hot slut.")
+
+2022-08-23 12:32:00  
 ![Demon raper](./demon-horn.jpg "Because I'm evil. Let loose upon the world. Let loose upon your naked body.")
 
 2022-08-22 13:45:37  
