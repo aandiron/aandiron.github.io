@@ -13,7 +13,7 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 [What I Remember About You](what-I-remember-about-you)
 
 2022-08-22 13:45:37  
-[Don't Touch Me](dont-touch-me)
+[Don't Touch](dont-touch)
 
 2021-08-23 12:21 PM  
 [Monday Mornings](monday-mornings)
