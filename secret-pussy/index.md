@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-08-28 14:12:50  
+![Goddess in my Head](./goddess-in-my-head.jpg "In my head, this is what you look like.")
+
 2022-08-27 10:35:50  
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")
 
