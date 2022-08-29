@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-08-29 12:56:00  
+![A reason to msturbate](./reason-to-masturbate.jpg "I'll spare you the sticky details. But you KNOW i's true... because you're so hot.")
+
 2022-08-28 14:12:50  
 ![Goddess in my Head](./goddess-in-my-head.jpg "In my head, this is what you look like.")
 
