@@ -23,6 +23,8 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "Take your witchy black clothes off and let me see your curves.")
+
 2022-08-29 12:56:00  
 ![A reason to msturbate](./reason-to-masturbate.jpg "I'll spare you the sticky details. But you KNOW i's true... because you're so hot.")
 
