@@ -23,6 +23,10 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-01 12:46:00  
+![Giant cock head, tiny fairy](./fairy-pussy.jpg "I wish you were my pocket-sized fairy. I'd keep you in my pants pocket --- with my huge warm dick always pressing up against you through the fabric of my pocket. And when I got bored I would take you out, and put you on the table and make you do a little tiny strip-tease for me. I'd be so excited to have you always available to entertain me with tiny porn whenever I wanted. And sometimes I'd tell you to masturbate for me, and I would pull out my loupe so I could see all the details of how wet your pussy gets. And I'd warn you to prepare yourself, and I would pull my cock out and jack it until I came, and point the tip of my dick at you so you are completely covered in an icing of my hot sticky cum.")
+
+
 2022-08-31 13:22:00  
 ![Mulan about to get fucked](./mulan.jpg "If what was happeing on the screen at the drive-in were the same as what was happening in your car.")
 
