@@ -18,6 +18,8 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [X] $15 - Tight shirt, no bra, nipples showing
 
+* [ ] $15 - **hot bikini shot**
+
 * [X] $20 - titties (any time, any way. No limit to how many of these I will pay for.)
 
 * [ ] $25 - titties with clothespins on the nipples
