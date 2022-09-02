@@ -29,6 +29,8 @@ layout: default
 
 ---I remember fucking you doggy-style on your couch. You were wearing a fuzzy sweater. We were interrupted when your friends rang the bell at your door. I think because that was the night we were going to watch the New Year's Eve fireworks down at the riverfront.
 
+---I remember you giving me head, and then licking my asshole, and asking me if anyone had ever done that for me before. (No one had.)
+
 ---I remember you falling asleep in the middle of having phone sex with me. I remember we had a lot of phone sex. And an expensive phone bill. But I don't remember what the phone sex was actually like. I don't remember actually cumming, though I know I did, many many times.
 
 ---I remember fucking you in the car at the drive in during Disney's Mulan. Well, I don't remember the fucking, (I wish I did). I just remember I never saw the movie. And I remember dropping the used condom on the ground outside the car, and feeling bad about it. But also transgressive-dirty-hot.
