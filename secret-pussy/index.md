@@ -24,6 +24,10 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 ## Images
 
 
+2022-09-03 18:02:34  
+![Morticia on the rack](./morticia-on-the-rack.jpg "Think you could take it like Moritica? I know you can.")
+
+
 2022-09-02 16:41:22  
 ![Our First Time](./our-first-time.jpg "I wish I remembered our first time. That is a memory that would be precious to me, if I had it. If you remember it, I want you to tell me all about it.")
 
