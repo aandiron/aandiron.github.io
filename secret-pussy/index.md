@@ -24,6 +24,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 ## Images
 
 
+2022-09-04 16:56:30  
+![Alien DP](./not-used-to-this-consent-thing.jpg "A creepy alien with a double-dick? I know you'd be all over that. Or under it, I suppose.")
+
 2022-09-03 18:02:34  
 ![Morticia on the rack](./morticia-on-the-rack.jpg "Think you could take it like Moritica? I know you can.")
 
