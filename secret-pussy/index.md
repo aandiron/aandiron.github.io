@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-06 13:22:25  
+![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "This is the kind of pumpkin spicing I want to see you do.")
+
 2022-09-05 16:39:57  
 ![Pumpkin Spice](./pumpkin-spice.jpg "I want to taste your pumpking spice, witch.")
 
