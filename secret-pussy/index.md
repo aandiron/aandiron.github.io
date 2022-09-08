@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-08 13:26:12  
+![Pussy kat claws](./witch-n-cat-claws.jpg "You once told me you were my pussy cat. Emphasis on the word pussy. I'd like to claw your clothes off, my pussy cat witch.")
+
 2022-09-07 13:21:29  
 ![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3.jpg "Remember that time you were going to wear a french maid outfit for me? What if I took your maiding to the next level of kink?")
 
