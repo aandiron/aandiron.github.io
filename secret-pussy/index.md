@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-09 13:28:05  
+![The girl in the mirror](./the-girl-in-the-mirror.jpg "You make the world think you are innocent. But I know that in the mirror that shows your true self, you are dressed like a whore, waiting for me to pay you to fuck you like a monster.")
+
 2022-09-08 13:26:12  
 ![Pussy kat claws](./witch-n-cat-claws.jpg "You once told me you were my pussy cat. Emphasis on the word pussy. I'd like to claw your clothes off, my pussy cat witch.")
 
