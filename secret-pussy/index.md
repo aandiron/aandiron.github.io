@@ -24,6 +24,10 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 ## Images
 
 
+[//]: # (woman on phone pic -- or you could just call me this week and tell me how much you like having your pussy licked.)
+
+[//]: # (Want to come down and visit me this weekend? Ill get us a fancy hotel room, and fuck you like when we were kids. Except well leave the curtains up and anyone who happens to glance up might see me fucking you up against the glass like you were my little whore.)
+
 2022-09-11 15:26:18  
 ![Ass and thighs](./ass-and-thighs.jpg "Show me your ass and thighs in skin-tight black. I want to run my hands over every curve, every detail of your hot ass and thighs while I imagine sliding my big cock up your ass.")
 
