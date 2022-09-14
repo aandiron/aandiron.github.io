@@ -24,6 +24,8 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 ## Images
 
 
+2022-09-14 19:57:14  
+![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")
 
 2022-09-13 20:05:12  
 ![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")
