@@ -24,8 +24,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 ## Images
 
 
-[//]: # (woman on phone pic -- or you could just call me this week and tell me how much you like having your pussy licked.)
 
+2022-09-13 20:05:12  
+![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")
 
 2022-09-12 13:07:19  
 ![In the hotel mirror](./mirror-flash.jpg "Want to come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")
