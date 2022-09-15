@@ -23,6 +23,8 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-15 16:49:00
+![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")
 
 2022-09-14 19:57:14  
 ![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")
