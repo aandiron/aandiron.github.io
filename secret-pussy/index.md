@@ -23,7 +23,7 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
-2022-09-15 16:49:00
+2022-09-15 16:49:00  
 ![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")
 
 2022-09-14 19:57:14  
