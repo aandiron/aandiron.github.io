@@ -23,6 +23,9 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+2022-09-16 12:59:06  
+![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")
+
 2022-09-15 16:49:00  
 ![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")
 
