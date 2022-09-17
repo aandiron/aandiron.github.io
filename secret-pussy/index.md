@@ -23,6 +23,10 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ## Images
 
+
+2022-09-17 16:03:41  
+![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")
+
 2022-09-16 12:59:06  
 ![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")
 
