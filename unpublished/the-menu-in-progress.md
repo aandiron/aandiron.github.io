@@ -3,52 +3,41 @@ layout: default
 ---
 
 # The Menu -- In Progress
-And prices I'm willing to pay. (Somewhat negotiable.)
+Things I want in my collection, and prices I'm willing to pay to get them. I seriously want to complete this entire series someday. Prices are negotiable.
 
 **Recently added items in bold.**
 
 
 ## Top priorities!
+* [ ] $40 - **Break the fast and send me a topless photo today!**
 
-* [ ] $10 - eating a banana (peeled) pic
+* [ ] $50 - **Your beautiful tit in your hand, your cute tongue extended, licking your own nipple**
 
-* [ ] $15 - wet lips (could be cum? could be almond milk?) closeup pic.
+* [ ] $15 - **you are wearing a bikini in a recent hot pic**
 
-* [ ] $15 - **hot bikini shot**
+* [ ] $50 - **YOU are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!**
 
-* [ ] $25 - spill something goopy on your beautiful tits
+* [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.**
 
-* [ ] $30 - **tentacle pressed between your tits ala a good titty fucking**
+* [ ] $10 - You're eating a banana (peeled) pic
 
-* [ ] $30 - full body wearing something lacey and see-through
+* [ ] $30 - You're wearing something lacey and see-through and showing your whole body
 
-* [ ] $30 - **Two-lips-o-dildo: beautiful lips wrapped around a tentacle**
+* [ ] $30 - **You have a tentacle pressed between your tits ala a good titty fucking**
 
-* [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
-
-* [ ] $50 - standing naked astride your motorcycle (boots optional)
-
-* [ ] $50 - **Your beautiful tit in your hand, Your cute tongue extended, licking your own nipple**
+* [ ] $30 - **Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle**
 
 * [ ] $50 - Tight shirt, no bra, nipples showing; in panties
 
-* [ ] $50 - Sitting on desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
+* [ ] $60 - You are naked in the bath with some bubbles (from your own perspective maybe?)
 
-* [ ] $60 - naked in the bath (from your own perspective maybe?)
+* [ ] $75 - you are naked in front of a mirror --- so I can see both sides at once. 
 
-* [ ] $75 - pretty pussy pic (not because I love close-ups, but because it's just so dirty I want it in my collection)
+* [ ] $25 - your tits pressed up against glass
 
-* [ ] $75 - Another perfect ass pic, bent over and showing some pretty pussy -- but completely naked (show the arc of your naked back.)
+* [ ] $100 - your ass up against glass, so I can see your pussy
 
-* [ ] $75 - naked in front of a mirror --- so I can see both sides at once. 
-
-* [ ] $25 - **your tits pressed up against glass**
-
-* [ ] $100 - **your ass up against glass, so I can see your pussy**
-
-* [ ] $100 - Tight shirt, no bra, nipples showing; panties down around knees
-
-* [ ] $100 - while sucking off a dude, insert your vibrator and make yourself cum imagining I am fucking you from behind at the same time, ala *How to Make a Whore*. 
+* [ ] $100 - You are in a tight shirt, no bra, nipples showing; panties down around knees
 
 * [ ] $50 - audio recording of yourself cumming thinking about me
 
@@ -60,15 +49,27 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 
 ## Hottest Fantasies
+* [ ] $50 - Sitting on desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
+
+* [ ] $75 - Another perfect ass pic, bent over and showing some pretty pussy -- but completely naked (show the arc of your naked back.)
+
+* [ ] $75 - pretty pussy pic (not because I love close-ups, but because it's just so dirty I want it in my collection)
+
+* [ ] $15 - wet lips (could be cum? could be almond milk?) closeup pic.
+
+* [ ] $25 - spill something goopy on your beautiful tits
+
 * [ ] $25 - titties with clothespins on the nipples
 
 * [ ] $25 - topless mermaid
 
 * [ ] $50 - your face covered in cum (with or without glasses)
 
-* [ ] $100 - **pic of you fucking a tentacle**
+* [ ] $100 - while sucking off a dude, insert your vibrator and make yourself cum imagining I am fucking you from behind at the same time, ala *How to Make a Whore*. 
 
-* [ ] $200 - **video of you fucking a tentacle**
+* [ ] $100 - pic of you fucking a tentacle
+
+* [ ] $200 - video of you fucking a tentacle
 
 * [ ] $100 - Video of rolling your hips like you are straddling a dude, fucking him wldly
 
@@ -82,13 +83,17 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $125 - You get engaged, buy a wedding dress, and take a topless or otherwise explicit photo showing how badly you want to get fucked on your wedding night.
 
+* [ ] $200 - **We have a hot makeout session together in real life. Only counts if we both get really turned on, and don't do anything about it!**
+
 * [ ] $500 - real life, in-person blowing me
 
 * [ ] $1500 - I get you to whore for me for a whole evening in-person and I can do whatever I want with you -- cum in *all* your holes. (You can be a little drunk -- but not TOO drunk.) $500 bonus if you let me record it.
 
 ---------------------------------------
 
-## Already collected:
+## Already in collection:
+* [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
+
 * [X] $15 - sideboob and/or underbutt pic (no limit to how many of these I will pay for)
 
 * [X] $15 - Tight shirt, no bra, nipples showing
