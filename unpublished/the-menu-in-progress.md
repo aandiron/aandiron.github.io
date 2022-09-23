@@ -8,27 +8,15 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 **Recently added items in bold.**
 
 
-## Pictures and videos:
+## Top priorities!
 
 * [ ] $10 - eating a banana (peeled) pic
 
 * [ ] $15 - wet lips (could be cum? could be almond milk?) closeup pic.
 
-* [X] $15 - sideboob and/or underbutt pic (no limit to how many of these I will pay for)
-
-* [X] $15 - Tight shirt, no bra, nipples showing
-
 * [ ] $15 - **hot bikini shot**
 
-* [X] $20 - titties (any time, any way. No limit to how many of these I will pay for.)
-
-* [ ] $25 - titties with clothespins on the nipples
-
-* [ ] $25 - topless mermaid
-
 * [ ] $25 - spill something goopy on your beautiful tits
-
-* [ ] $25 - **your tits pressed up against glass**
 
 * [ ] $30 - **tentacle pressed between your tits ala a good titty fucking**
 
@@ -42,8 +30,6 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $50 - **Your beautiful tit in your hand, Your cute tongue extended, licking your own nipple**
 
-* [ ] $50 - your face covered in cum (with or without glasses)
-
 * [ ] $50 - Tight shirt, no bra, nipples showing; in panties
 
 * [ ] $50 - Sitting on desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
@@ -56,32 +42,11 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $75 - naked in front of a mirror --- so I can see both sides at once. 
 
+* [ ] $25 - **your tits pressed up against glass**
+
 * [ ] $100 - **your ass up against glass, so I can see your pussy**
 
 * [ ] $100 - Tight shirt, no bra, nipples showing; panties down around knees
-
-* [ ] $100 - **pic of you fucking a tentacle**
-
-* [ ] $200 - **video of you fucking a tentacle**
-
-* [ ] $100 - hardcore XXX dirty vibrator-insertion pussy pic (doesn't have to show your face)
-
-* [ ] $100 - naked, on knees, facing the camera, fucking yourself with a dildo in pussy  
-
-* [ ] $125 - You get engaged, buy a wedding dress, and take a topless or otherwise explicit photo showing how badly you want to get fucked on your wedding night.
-
-* [ ] $100 - Video of rolling your hips like you are straddling a dude, fucking him wldly
-
-* [ ] $200 - video of you giving a blowjob to someone 
-
-* [ ] $200 - video of you getting fucked by someone
-
-* [ ] $600 - POV video where you talk directly to the camera with personal references, and make yourself cum as if I'm fucking you. At least 10 minutes of content (keep that orgasm on edge!) 
-
-
-## Actions
-
-* [ ] $30 - You record yourself reading any story of mine (more than 3k words). ($50 if you can make yourself cum while you are reading it.)
 
 * [ ] $100 - while sucking off a dude, insert your vibrator and make yourself cum imagining I am fucking you from behind at the same time, ala *How to Make a Whore*. 
 
@@ -91,13 +56,44 @@ And prices I'm willing to pay. (Somewhat negotiable.)
 
 * [ ] $100 - real interactive phone sex with me
 
-* [ ] $500 - real life, in-person blowjob
+* [ ] $600 - POV video where you talk directly to the camera with personal references, and make yourself cum as if I'm fucking you. At least 10 minutes of content (keep that orgasm on edge!) 
+
+
+## Hottest Fantasies
+* [ ] $25 - titties with clothespins on the nipples
+
+* [ ] $25 - topless mermaid
+
+* [ ] $50 - your face covered in cum (with or without glasses)
+
+* [ ] $100 - **pic of you fucking a tentacle**
+
+* [ ] $200 - **video of you fucking a tentacle**
+
+* [ ] $100 - Video of rolling your hips like you are straddling a dude, fucking him wldly
+
+* [ ] $100 - hardcore XXX dirty vibrator-insertion pussy pic (doesn't have to show your face)
+
+* [ ] $100 - naked, on knees, facing the camera, fucking yourself with a dildo in pussy  
+
+* [ ] $200 - video of you giving a blowjob to someone 
+
+* [ ] $200 - video of you getting fucked by someone
+
+* [ ] $125 - You get engaged, buy a wedding dress, and take a topless or otherwise explicit photo showing how badly you want to get fucked on your wedding night.
+
+* [ ] $500 - real life, in-person blowing me
 
 * [ ] $1500 - I get you to whore for me for a whole evening in-person and I can do whatever I want with you -- cum in *all* your holes. (You can be a little drunk -- but not TOO drunk.) $500 bonus if you let me record it.
 
 ---------------------------------------
 
 ## Already collected:
+* [X] $15 - sideboob and/or underbutt pic (no limit to how many of these I will pay for)
+
+* [X] $15 - Tight shirt, no bra, nipples showing
+
+* [X] $20 - titties (any time, any way. No limit to how many of these I will pay for.)
 
 * [X] $0 - anonymous but sexy cleavage with hands counting money (I need it to go with my new story!)
 
