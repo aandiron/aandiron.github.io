@@ -85,7 +85,7 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $200 - **We have a hot makeout session together in real life. Only counts if we both get really turned on, and don't do anything about it!**
 
-* [ ] $500 - real life, in-person blowing me
+* [ ] $500 - you suck me off, in-person in real life
 
 * [ ] $1500 - I get you to whore for me for a whole evening in-person and I can do whatever I want with you -- cum in *all* your holes. (You can be a little drunk -- but not TOO drunk.) $500 bonus if you let me record it.
 
