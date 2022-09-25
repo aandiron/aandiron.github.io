@@ -7,42 +7,28 @@ A not-for-public consumption collection of inspiration to mine for my stories.
 
 ----------------------------------------
 
-## Texts
 
-2022-02-19 17:41:32    
-[What I Remember About You](what-I-remember-about-you)
-
-2022-08-22 13:45:37  
-[Don't Touch](dont-touch)
-
-2021-08-23 12:21 PM  
-[Monday Mornings](monday-mornings)
-
-
-----------------------------------------
-
-## Images
-
-
-2022-09-17 16:03:41  
 ![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")
+* 2022-09-17 16:03:41  
+* What if this is a caption?
 
-2022-09-16 12:59:06  
+* 2022-09-16 12:59:06  
 ![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")
+* or what if this is a caption?
 
-2022-09-15 16:49:00  
+* 2022-09-15 16:49:00  
 ![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")
 
-2022-09-14 19:57:14  
+* 2022-09-14 19:57:14  
 ![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")
 
-2022-09-13 20:05:12  
+* 2022-09-13 20:05:12  
 ![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")
 
-2022-09-12 13:07:19  
+* 2022-09-12 13:07:19  
 ![In the hotel mirror](./mirror-flash.jpg "Want to come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")
 
-2022-09-11 15:26:18  
+* 2022-09-11 15:26:18  
 ![Ass and thighs](./ass-and-thighs.jpg "Show me your ass and thighs in skin-tight black. I want to run my hands over every curve, every detail of your hot ass and thighs while I imagine sliding my big cock up your ass.")
 
 2022-09-09 13:28:05  
