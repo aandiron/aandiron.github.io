@@ -7,32 +7,32 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-## What if caption is two hash?
+## In the corner window
 ![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")  
 2022-09-17
 
 
-## what if caption is two hash?
+## Grip your ass
 ![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")  
 2022-09-16
 
 
-## what if caption is two hash?
+## Zombie pussy
 ![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")  
 2022-09-15
 
 
-## what if caption is two hash?
+## Cute pussy
 ![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")  
 2022-09-14
 
 
-## what if caption is two hash?
+## Call me
 ![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")  
 2022-09-13
 
 
-## what if caption is two hash?
+## Reflection
 ![In the hotel mirror](./mirror-flash.jpg "Want to come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")  
 2022-09-12
 
