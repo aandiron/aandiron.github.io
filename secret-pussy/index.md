@@ -8,31 +8,33 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ----------------------------------------
 
 ## What if caption is two hash?
-![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")
+![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")  
 2022-09-17
 
 
 ## what if caption is two hash?
-![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")
+![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock.")  
 2022-09-16
 
 
-![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")
-* What if caption is bullet below?
+## what if caption is two hash?
+![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")  
 2022-09-15
 
 
-### What if caption is three hash with bullet date after pic?
-![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")
+## what if caption is two hash?
+![Cute cat](./cute-cat.jpg "I wish you were still my pussy cat.")  
 2022-09-14
 
 
-![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")
-* 2022-09-13
+## what if caption is two hash?
+![Before she freshens up](./freshenup.jpg "Or you could call me this week and tell me in great deal how much you like having cum licked out of your pussy.")  
+2022-09-13
 
-### What if caption is three hash with no HR?
-![In the hotel mirror](./mirror-flash.jpg "Want to come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")
-* 2022-09-12
+
+## what if caption is two hash?
+![In the hotel mirror](./mirror-flash.jpg "Want to come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")  
+2022-09-12
 
 ![Ass and thighs](./ass-and-thighs.jpg "Show me your ass and thighs in skin-tight black. I want to run my hands over every curve, every detail of your hot ass and thighs while I imagine sliding my big cock up your ass.")
 * 2022-09-11
