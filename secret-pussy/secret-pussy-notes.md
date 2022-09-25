@@ -13,4 +13,5 @@
 * Add tooltip to image
 	* tooltip should be super dirty 
 * Add a date with a second bullet
+* separate entries with an HR (space above and below so they don't create titles)
 

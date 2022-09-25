@@ -7,8 +7,8 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+* What if caption is above?
 ![In the corner window](./22.0819millie-against-the-glass.jpg "I'm totally serious. Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")
-* What if this is a caption?
 * 2022-09-17
 
 ----------------------------------------
