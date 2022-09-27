@@ -22,7 +22,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-15
 
 
-## You are a cute cat: dress up in kitty ears for me
+## You dress up: wear cute kitty ears for me
 ![Cute cat](./cute-cat.jpg "I'll put my hand behind you and pet your pussy until you are in heat.")  
 2022-09-14
 
@@ -44,44 +44,51 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ![The girl in the mirror](./the-girl-in-the-mirror.jpg "You make the world think you are innocent. But I know that in the mirror that shows your true self, you are dressed like a whore, waiting for me to pay you to fuck you like a monster.")  
 2022-09-09
 
-## You are a witch: 
-![Pussy kat claws](./witch-n-cat-claws.jpg "You once told me you were my pussy cat. Emphasis on the word pussy. I'd like to claw your clothes off, my pussy cat witch.")  
+## You dress up: watch out for the claws of your pussy, witch
+![Pussy cat claws](./witch-n-cat-claws.jpg "I'd like to claw your clothes off, my pussy cat witch.")  
 2022-09-08
 
-![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3.jpg "Remember that time you were going to wear a french maid outfit for me? What if I took your maiding to the next level of kink?")  
+## You dress up: but this is pretty disgusting
+![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3.jpg "Be my maid and do whatever I tell you. Even when I tell you I'm going to turn you upside down and use your naked bottom as a desert tray.")  
 2022-09-07
 
-![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "This is the kind of pumpkin spicing I want to see you do.")  
+## You dress up: this is the kind of pumpkin spice you really want, witch
+![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "Sit on it slowly, let it slide up into your cunt, let the vegetable get pleasureable in you.")  
 2022-09-06
 
-![Pumpkin Spice](./pumpkin-spice.jpg "I want to taste your pumpking spice, witch.")  
+## You dress up: and you sell pumpkin spice?
+![Pumpkin Spice](./pumpkin-spice.jpg "Get on your knees, witch, and taste my pumpkin spice.")  
 2022-09-05
 
-![Alien DP](./not-used-to-this-consent-thing.jpg "A creepy alien with a double-dick? I know you'd be all over that. Or under it, I suppose.")  
+## You like it with some horror: but _this_ much horror?
+![Alien DP](./not-used-to-this-consent-thing.jpg "Get your pussy and your tight ass all over that Alien double dick. Or under it, I suppose.")  
 2022-09-04
 
-![Morticia on the rack](./morticia-on-the-rack.jpg "Think you could take it like Moritica? I know you can.")  
+## You dress up: but are you up for what Morticia can take?
+![Morticia on the rack](./morticia-on-the-rack.jpg "Tie you up, stretch you out, make you think about what Gomez will do with his cock. Then get stretched out on his dick.")  
 2022-09-03
 
-
+## You are sentimental: do you remember our first time?
 ![Our First Time](./our-first-time.jpg "I wish I remembered our first time. That is a memory that would be precious to me, if I had it. If you remember it, I want you to tell me all about it.")  
 2022-09-02
 
+## You are a tiny fairy: you're small, fluttery, and magical
 ![Giant cock head, tiny fairy](./fairy-pussy.jpg "I wish you were my pocket-sized fairy. I'd keep you in my pants pocket --- with my huge warm dick always pressing up against you through the fabric of my pocket. And when I got bored I would take you out, and put you on the table and make you do a little tiny strip-tease for me. I'd be so excited to have you always available to entertain me with tiny porn whenever I wanted. And sometimes I'd tell you to masturbate for me, and I would pull out my loupe so I could see all the details of how wet your pussy gets. And I'd warn you to prepare yourself, and I would pull my cock out and jack it until I came, and point the tip of my dick at you so you are completely covered in an icing of my hot sticky cum.")  
 2022-09-01
 
-![Mulan about to get fucked](./mulan.jpg "If what was happeing on the screen at the drive-in were the same as what was happening in your car.")  
+## You are a princess: watch out for the intentions of men
+![Mulan about to get fucked](./mulan.jpg "I want to unpeel your pure-of-heart exterior and slip my cock into your private princess pussy.")  
 2022-08-31
 
-![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "Take your witchy black clothes off and let me see your curves.")  
+## You dress up and you have curves: take off the clothes and share your curves with the world
+![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "I want to watch as you slip out of something tight. I want to watch your curves reveal themselves to me. And then I want to hold your curves under my big hands while I fuck you to pieces.")  
 2022-08-30
 
-![A reason to msturbate](./reason-to-masturbate.jpg "I'll spare you the sticky details. But you KNOW i's true... because you're so hot.")  
-2022-08-29
-
-![Goddess in my Head](./goddess-in-my-head.jpg "In my head, this is what you look like.")  
+## You are a goddess: at least in my head this is how I see you
+![Goddess in my Head](./goddess-in-my-head.jpg "I want to crawl to you on my knees and supplicate you to open your frock, spread your legs, and let me gaze one time upon your divine tits and pussy.")  
 2022-08-28
 
+## You like to take a chance on being seen: some random stranger will be jealous of your beauty
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")  
 2022-08-27
 
