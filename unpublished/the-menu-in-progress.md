@@ -100,6 +100,8 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [X] $20 - titties (any time, any way. No limit to how many of these I will pay for.)
 
+* [X] $20 - you pull your shirt up and hold it in your teeth while taking a titty pic
+
 * [X] $0 - anonymous but sexy cleavage with hands counting money (I need it to go with my new story!)
 
 * [X] $10 - you in glasses
