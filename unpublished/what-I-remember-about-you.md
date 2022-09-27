@@ -27,6 +27,8 @@ layout: default
 
 ---I remember going to the beach with you, and pointing out to you that one of your small pretty tits had escaped your bikini top.
 
+---I remember you telling me you were my pussy cat. Empasis on the word _pussy_.
+
 ---I remember fucking you doggy-style on your couch. You were wearing a fuzzy sweater. We were interrupted when your friends rang the bell at your door. I think because that was the night we were going to watch the New Year's Eve fireworks down at the riverfront.
 
 ---I remember you giving me head, and then licking my asshole, and asking me if anyone had ever done that for me before. (No one had.)
