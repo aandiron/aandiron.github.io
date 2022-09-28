@@ -7,7 +7,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-## You like to take a chance on being seen: because you like it when a man pushes your boundaries
+## You are a minor exhibitionist: because you like it when a man pushes your boundaries
 ![In the corner window](./22.0819millie-against-the-glass.jpg "Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")  
 2022-09-17
 
@@ -17,12 +17,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-16
 
 
-## You like it with some horror: sexy undead and a cute pussy to pet
-![Cat and zombie](./black-cat.jpg "I want to eat your zombie pussy raw.")  
-2022-09-15
-
-
-## You dress up: wear cute kitty ears for me
+## You are a pussy cat: wear cute kitty ears for me
 ![Cute cat](./cute-cat.jpg "I'll put my hand behind you and pet your pussy until you are in heat.")  
 2022-09-14
 
@@ -32,7 +27,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-13
 
 
-## You like it documented: you love the idea of your man looking at hot pictures of you later and thinking about you
+## You are a minor exhibitionist: you love the idea of your man looking at hot pictures of you later and thinking about you
 ![In the hotel mirror](./mirror-flash.jpg "come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")  
 2022-09-12
 
@@ -40,17 +35,15 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ![Ass and thighs](./ass-and-thighs.jpg "Show me your ass and thighs in skin-tight black. I want to run my hands over every curve, every detail of your hot ass and thighs while I imagine sliding my big cock up your ass.")  
 2022-09-11
 
-## The world thinks you're a nice lady: but you see someone else when you look in the mirror
+## You're a nice respectable lady: but you see someone else when you look in the mirror
 ![The girl in the mirror](./the-girl-in-the-mirror.jpg "You make the world think you are innocent. But I know that in the mirror that shows your true self, you are dressed like a whore, waiting for me to pay you to fuck you like a monster.")  
 2022-09-09
 
-## You dress up: watch out for the claws of your pussy, witch
+
+## You are a witch: watch out for the claws of your pussy
 ![Pussy cat claws](./witch-n-cat-claws.jpg "I'd like to claw your clothes off, my pussy cat witch.")  
 2022-09-08
 
-## You dress up: but this is pretty disgusting
-![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-3.jpg "Be my maid and do whatever I tell you. Even when I tell you I'm going to turn you upside down and use your naked bottom as a desert tray.")  
-2022-09-07
 
 ## You dress up: this is the kind of pumpkin spice you really want, witch
 ![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "Sit on it slowly, let it slide up into your cunt, let the vegetable get pleasureable in you.")  
@@ -88,41 +81,50 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ![Goddess in my Head](./goddess-in-my-head.jpg "I want to crawl to you on my knees and supplicate you to open your frock, spread your legs, and let me gaze one time upon your divine tits and pussy.")  
 2022-08-28
 
-## You like to take a chance on being seen: some random stranger will be jealous of your beauty
+## You are an exhibitionist: some random stranger will be jealous of your beauty
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")  
 2022-08-27
 
+## You are a mermaid: 
 ![Evil Ariel](./evil-ariel.jpg "If you were an evil mermaid, I would pay you to suck my cock.")  
 2022-08-26
 
+## You are a witch: 
 ![Witches Can't Get Pregnant](./witches-cant-get-pregnant.jpg "I want to put you to the test and find out if you have become a witch.")  
 2022-08-25
 
+## You are a rider: 
 ![Crotch Rocket](./crotch-rocket.jpg "Bend your cute ass over a motorcycle and let me ride you from behind, you hot slut.")  
 2022-08-24
 
+## You are a victim: 
 ![Demon raper](./demon-horn.jpg "Because I'm evil. Let loose upon the world. Let loose upon your naked body.")  
 2022-08-23
 
+## You are a vampire: 
 ![Eating vampire pussy](./eatin-vamp-woman.jpg "Let me under your evil skirts. I'll eat you back into heaven.")  
 2022-08-22
 
+## You are a servant: 
 ![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2.jpg "With or withou a french maid uniform, you are a world-class dick sucker.")  
 2022-08-13
 
+## You are a servant: 
 ![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me.jpg "Remember that time you were going to wear a french maid outfit for me?")  
 2022-08-12
 
+## You are a mermaid:
 ![chiara-bautista_going-nowhere](./chiara-bautista_going-nowhere.jpg "I would take you for a ride.")  
 2022-08-05
 
+## You are a mermaid:
 ![chiara-bautista_someone-else](./chiara-bautista_someone-else.jpg "I'd like to get a piece of your tail.")  
 2022-08-05
 
+
+## You are a mermaid:
 ![chiara-bautista_mermaid-marry-me](./chiara-bautista_mermaid-marry-me.jpg "I want you to eat my bone.")  
 2022-08-05
 
-![See no evil hear no evil speak no evil](./seenohearnospeakno.jpg "I like the middle one because she reminds me of you")  
-2022-07-21
 
 
