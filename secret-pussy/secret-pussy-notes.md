@@ -16,9 +16,10 @@
 * Add a date after the image
 * Add two spaces before the next entry
 
+Here's an example entry
 
-## An entry looks like this in markdown
-![Markdown pic name](./filename.jpg "dirty tooltip")  
+## before the colon says what category she is: after the colon is a generic statement of how hot she is to the world (no specific references to I or me)
+![name for reading in markdown](./filename.jpg "tooltip that is deeply porny and dirty and says what _I_ want to do to her, or what I want her to do to _me_.")  
 2022-09-16
 
 

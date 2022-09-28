@@ -45,77 +45,90 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-08
 
 
-## You dress up: this is the kind of pumpkin spice you really want, witch
+## You are a witch: this is the kind of pumpkin spice you really want
 ![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "Sit on it slowly, let it slide up into your cunt, let the vegetable get pleasureable in you.")  
 2022-09-06
 
-## You dress up: and you sell pumpkin spice?
+
+## You are a witch: and you sell pumpkin spice?
 ![Pumpkin Spice](./pumpkin-spice.jpg "Get on your knees, witch, and taste my pumpkin spice.")  
 2022-09-05
+
 
 ## You like it with some horror: but _this_ much horror?
 ![Alien DP](./not-used-to-this-consent-thing.jpg "Get your pussy and your tight ass all over that Alien double dick. Or under it, I suppose.")  
 2022-09-04
 
-## You dress up: but are you up for what Morticia can take?
+
+## You are a hot wife: but are you up for what Morticia can take?
 ![Morticia on the rack](./morticia-on-the-rack.jpg "Tie you up, stretch you out, make you think about what Gomez will do with his cock. Then get stretched out on his dick.")  
 2022-09-03
+
 
 ## You are sentimental: do you remember our first time?
 ![Our First Time](./our-first-time.jpg "I wish I remembered our first time. That is a memory that would be precious to me, if I had it. If you remember it, I want you to tell me all about it.")  
 2022-09-02
 
-## You are a tiny fairy: you're small, fluttery, and magical
+
+## You are a tiny fairy: small, fluttery, and magical
 ![Giant cock head, tiny fairy](./fairy-pussy.jpg "I wish you were my pocket-sized fairy. I'd keep you in my pants pocket --- with my huge warm dick always pressing up against you through the fabric of my pocket. And when I got bored I would take you out, and put you on the table and make you do a little tiny strip-tease for me. I'd be so excited to have you always available to entertain me with tiny porn whenever I wanted. And sometimes I'd tell you to masturbate for me, and I would pull out my loupe so I could see all the details of how wet your pussy gets. And I'd warn you to prepare yourself, and I would pull my cock out and jack it until I came, and point the tip of my dick at you so you are completely covered in an icing of my hot sticky cum.")  
 2022-09-01
+
 
 ## You are a princess: watch out for the intentions of men
 ![Mulan about to get fucked](./mulan.jpg "I want to unpeel your pure-of-heart exterior and slip my cock into your private princess pussy.")  
 2022-08-31
 
-## You dress up and you have curves: take off the clothes and share your curves with the world
+
+## You have curves: take off the clothes and share your curves with the world
 ![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "I want to watch as you slip out of something tight. I want to watch your curves reveal themselves to me. And then I want to hold your curves under my big hands while I fuck you to pieces.")  
 2022-08-30
+
 
 ## You are a goddess: at least in my head this is how I see you
 ![Goddess in my Head](./goddess-in-my-head.jpg "I want to crawl to you on my knees and supplicate you to open your frock, spread your legs, and let me gaze one time upon your divine tits and pussy.")  
 2022-08-28
 
+
 ## You are an exhibitionist: some random stranger will be jealous of your beauty
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")  
 2022-08-27
+
 
 ## You are a mermaid: 
 ![Evil Ariel](./evil-ariel.jpg "If you were an evil mermaid, I would pay you to suck my cock.")  
 2022-08-26
 
+
 ## You are a witch: 
 ![Witches Can't Get Pregnant](./witches-cant-get-pregnant.jpg "I want to put you to the test and find out if you have become a witch.")  
 2022-08-25
+
 
 ## You are a rider: 
 ![Crotch Rocket](./crotch-rocket.jpg "Bend your cute ass over a motorcycle and let me ride you from behind, you hot slut.")  
 2022-08-24
 
-## You are a victim: 
+
+## You give in: 
 ![Demon raper](./demon-horn.jpg "Because I'm evil. Let loose upon the world. Let loose upon your naked body.")  
 2022-08-23
+
 
 ## You are a vampire: 
 ![Eating vampire pussy](./eatin-vamp-woman.jpg "Let me under your evil skirts. I'll eat you back into heaven.")  
 2022-08-22
 
+
 ## You are a servant: 
 ![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2.jpg "With or withou a french maid uniform, you are a world-class dick sucker.")  
 2022-08-13
+
 
 ## You are a servant: 
 ![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me.jpg "Remember that time you were going to wear a french maid outfit for me?")  
 2022-08-12
 
-## You are a mermaid:
-![chiara-bautista_going-nowhere](./chiara-bautista_going-nowhere.jpg "I would take you for a ride.")  
-2022-08-05
 
 ## You are a mermaid:
 ![chiara-bautista_someone-else](./chiara-bautista_someone-else.jpg "I'd like to get a piece of your tail.")  
