@@ -3,8 +3,7 @@ layout: default
 ---
 
 # The Menu -- In Progress
-Things I want in my collection, and prices I'm willing to pay to get them. I seriously want to complete this entire series someday. Prices are negotiable.
-
+Things I want in my collection, and prices I'm willing to pay to get them. I seriously want to complete this entire series someday. Prices are negotiable.  
 **Recently added items in bold.**
 
 
