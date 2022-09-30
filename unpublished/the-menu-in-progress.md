@@ -19,6 +19,12 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.**
 
+* [ ] $20 - **You're wearing a soaking wet white t-shirt**
+
+* [ ] $40 - **You're wearing a soaking wet white t-shirt, and panties**
+
+* [ ] $100 - **You're wearing a soaking wet white t-shirt, and no panties**
+
 * [ ] $10 - You're eating a banana (peeled) pic
 
 * [ ] $30 - You're wearing something lacey and see-through and showing your whole body
