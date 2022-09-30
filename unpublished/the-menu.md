@@ -11,11 +11,15 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 ## Top priorities!
 * [ ] $40 - **Break the fast and send me a topless photo today!**
 
+* [ ] $10 - You're eating a banana (peeled) pic
+
+* [ ] $30 - You're wearing something lacey and see-through and showing your whole body
+
 * [ ] $50 - **Your beautiful tit in your hand, your cute tongue extended, licking your own nipple**
 
 * [ ] $15 - **you are wearing a bikini in a recent hot pic**
 
-* [ ] $50 - **YOU are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!**
+* [ ] $50 - YOU are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!
 
 * [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.**
 
@@ -24,10 +28,6 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 * [ ] $40 - **You're wearing a soaking wet white t-shirt, and panties**
 
 * [ ] $75 - **You're wearing a soaking wet white t-shirt, and no panties**
-
-* [ ] $10 - You're eating a banana (peeled) pic
-
-* [ ] $30 - You're wearing something lacey and see-through and showing your whole body
 
 * [ ] $30 - **You have a tentacle pressed between your tits ala a good titty fucking**
 
