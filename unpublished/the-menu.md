@@ -23,7 +23,7 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $40 - **You're wearing a soaking wet white t-shirt, and panties**
 
-* [ ] $100 - **You're wearing a soaking wet white t-shirt, and no panties**
+* [ ] $75 - **You're wearing a soaking wet white t-shirt, and no panties**
 
 * [ ] $10 - You're eating a banana (peeled) pic
 
@@ -77,7 +77,7 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $200 - video of you fucking a tentacle
 
-* [ ] $100 - Video of rolling your hips like you are straddling a dude, fucking him wldly
+* [ ] $100 - Video of rolling your hips like you are straddling a dude, fucking him wildly
 
 * [ ] $100 - hardcore XXX dirty vibrator-insertion pussy pic (doesn't have to show your face)
 
