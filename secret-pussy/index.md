@@ -2,12 +2,12 @@
 layout: default
 ---
 
-# Secret Pussy --- A Specially Curated Collection For One Special Person
-A not-for-public-consumption collection to generate inspiration for my stories. Just for *you* --- you know who you are.
+# Secret Pussy -- A Specially Curated Collection For One Special Person
+A not-for-public-consumption collection to generate inspiration for my stories. Just for *you* -- you know who you are.
 
 ----------------------------------------
 
-## You are a minor exhibitionist: because you like it when a man pushes your boundaries
+## You are kind of an exhibitionist: because you like the idea that the world is admiring your hotness
 ![In the corner window](./22.0819millie-against-the-glass.jpg "Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")  
 2022-09-17
 
@@ -17,30 +17,30 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-16
 
 
-## You are a pussy cat: wear cute kitty ears for me
+## You are a pussy cat: you're adorable and people want to pet you
 ![Cute cat](./cute-cat.jpg "I'll put my hand behind you and pet your pussy until you are in heat.")  
 2022-09-14
 
 
-## You are a hot wife: your voice is the most sensuous thing I've ever heard on the phone
+## You are a hot wife: your voice is the most sensuous sound ever transmitted over a wire
 ![Before she freshens up](./freshenup.jpg "you could call me and describe to me in great detail how much you like having cum licked out of your pussy.")  
 2022-09-13
 
 
-## You are a minor exhibitionist: you love the idea of your man looking at hot pictures of you later and thinking about you
+## You are kind of an exhibitionist: you want your man to be inspired when he looks at hot pictures of your later
 ![In the hotel mirror](./mirror-flash.jpg "come down and visit me this weekend? I'll get us a fancy hotel room for the night. And I'll give you such a fucking you feel as young and dirty as the first time we ever did it.")  
 2022-09-12
 
-## You have curves: wear something tight and show them off
+## You have curves: when you wear something tight, the world spins around a littl faster
 ![Ass and thighs](./ass-and-thighs.jpg "Show me your ass and thighs in skin-tight black. I want to run my hands over every curve, every detail of your hot ass and thighs while I imagine sliding my big cock up your ass.")  
 2022-09-11
 
-## You're a nice respectable lady: but you see someone else when you look in the mirror
+## You're a nice respectable lady: but someone else looks back at you from the mirror
 ![The girl in the mirror](./the-girl-in-the-mirror.jpg "You make the world think you are innocent. But I know that in the mirror that shows your true self, you are dressed like a whore, waiting for me to pay you to fuck you like a monster.")  
 2022-09-09
 
 
-## You are a witch: watch out for the claws of your pussy
+## You are a witch: and your pussy has claws
 ![Pussy cat claws](./witch-n-cat-claws.jpg "I'd like to claw your clothes off, my pussy cat witch.")  
 2022-09-08
 
@@ -65,13 +65,13 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-03
 
 
-## You are sentimental: do you remember our first time?
+## You are sentimental: and first times are special
 ![Our First Time](./our-first-time.jpg "I wish I remembered our first time. That is a memory that would be precious to me, if I had it. If you remember it, I want you to tell me all about it.")  
 2022-09-02
 
 
 ## You are a tiny fairy: small, fluttery, and magical
-![Giant cock head, tiny fairy](./fairy-pussy.jpg "I wish you were my pocket-sized fairy. I'd keep you in my pants pocket --- with my huge warm dick always pressing up against you through the fabric of my pocket. And when I got bored I would take you out, and put you on the table and make you do a little tiny strip-tease for me. I'd be so excited to have you always available to entertain me with tiny porn whenever I wanted. And sometimes I'd tell you to masturbate for me, and I would pull out my loupe so I could see all the details of how wet your pussy gets. And I'd warn you to prepare yourself, and I would pull my cock out and jack it until I came, and point the tip of my dick at you so you are completely covered in an icing of my hot sticky cum.")  
+![Giant cock head, tiny fairy](./fairy-pussy.jpg "I wish you were my pocket-sized fairy. I'd keep you in my pants pocket -- with my huge warm dick always pressing up against you through the fabric of my pocket. And when I got bored I would take you out, and put you on the table and make you do a little tiny strip-tease for me. I'd be so excited to have you always available to entertain me with tiny porn whenever I wanted. And sometimes I'd tell you to masturbate for me, and I would pull out my loupe so I could see all the details of how wet your pussy gets. And I'd warn you to prepare yourself, and I would pull my cock out and jack it until I came, and point the tip of my dick at you so you are completely covered in an icing of my hot sticky cum.")  
 2022-09-01
 
 
@@ -80,17 +80,17 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-08-31
 
 
-## You have curves: take off the clothes and share your curves with the world
+## You have curves: when you take off the clothes the world stops
 ![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "I want to watch as you slip out of something tight. I want to watch your curves reveal themselves to me. And then I want to hold your curves under my big hands while I fuck you to pieces.")  
 2022-08-30
 
 
-## You are a goddess: at least in my head this is how I see you
+## You are a goddess: at least for people lucky enough to be in the know
 ![Goddess in my Head](./goddess-in-my-head.jpg "I want to crawl to you on my knees and supplicate you to open your frock, spread your legs, and let me gaze one time upon your divine tits and pussy.")  
 2022-08-28
 
 
-## You are an exhibitionist: some random stranger will be jealous of your beauty
+## You are kind of an exhibitionist: some random stranger will be jealous of your beauty
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")  
 2022-08-27
 
