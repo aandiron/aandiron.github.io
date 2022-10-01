@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are delicious: everyone wants a bite of you
+![Send Noods](./send-noods.jpg "But I want to slurp your hot wet noodle between my lips, and sink my teeth into your succulent meats.")  
+
+
 ## You are kind of an exhibitionist: because you like the idea that the world is admiring your hotness
 ![In the corner window](./22.0819millie-against-the-glass.jpg "Come down to the city tonight, and we'll get a hotel room in a high building — And I'll fuck you in a corner window so that the whole world might watch us.")  
 2022-09-17
