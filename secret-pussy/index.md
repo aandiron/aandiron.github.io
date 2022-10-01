@@ -9,6 +9,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ## You are delicious: everyone wants a bite of you
 ![Send Noods](./send-noods.jpg "But I want to slurp your hot wet noodle between my lips, and sink my teeth into your succulent meats.")  
+2022-10-01
 
 
 ## You are kind of an exhibitionist: because you like the idea that the world is admiring your hotness
