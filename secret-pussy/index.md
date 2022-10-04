@@ -17,7 +17,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-17
 
 
-## You like it a little rough: the feel of a big man's hands on you
+## You like it a little rough: the feel of a big man's hands on your body
 ![Grip the ass](./grip-the-ass.jpg "I want to sink the firm grip of my fingers into the flesh of your ass and pull you back on my cock until you are screaming out my name.")  
 2022-09-16
 
@@ -95,53 +95,53 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-08-28
 
 
-## You are kind of an exhibitionist: some random stranger will be jealous of your beauty
+## You are kind of an exhibitionist: random strangers will be jealous of your beauty
 ![Pressed up against the window](./against-the-window.jpg "I want to bend you over and fuck you from behind up against the window -- so the whole city below can see your tits and gasping face.")  
 2022-08-27
 
 
-## You are a mermaid: 
+## You are a mermaid: an beautiful and terrible mermaid
 ![Evil Ariel](./evil-ariel.jpg "If you were an evil mermaid, I would pay you to suck my cock.")  
 2022-08-26
 
 
-## You are a witch: 
-![Witches Can't Get Pregnant](./witches-cant-get-pregnant.jpg "I want to put you to the test and find out if you have become a witch.")  
+## You are a witch: someone should put that assertion to the test
+![Witches Can't Get Pregnant](./witches-cant-get-pregnant.jpg "I want to cum in your cunt over and over again. I'll bet I can prove you aren't a witch.")  
 2022-08-25
 
 
-## You are a rider: 
+## You are a rider: people like to see you spread your legs for the machine
 ![Crotch Rocket](./crotch-rocket.jpg "Bend your cute ass over a motorcycle and let me ride you from behind, you hot slut.")  
 2022-08-24
 
 
-## You give in: 
-![Demon raper](./demon-horn.jpg "Because I'm evil. Let loose upon the world. Let loose upon your naked body.")  
+## You give in: to the evil let loose upon the world
+![Demon raper](./demon-horn.jpg "...To the evil let loose upon your hot naked body.")  
 2022-08-23
 
 
-## You are a vampire: 
-![Eating vampire pussy](./eatin-vamp-woman.jpg "Let me under your evil skirts. I'll eat you back into heaven.")  
+## You are a vampire: a dangerous attraction
+![Eating vampire pussy](./eatin-vamp-woman.jpg "I want to get under your skirts and taste your vampire pussy.")  
 2022-08-22
 
 
-## You are a servant: 
-![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2.jpg "With or withou a french maid uniform, you are a world-class dick sucker.")  
+## You are a servant: everyone wants what you serve
+![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-2.jpg "With or withou a french maid uniform, you are world-class when it comes to fellatio.")  
 2022-08-13
 
 
-## You are a servant: 
-![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me.jpg "Remember that time you were going to wear a french maid outfit for me?")  
+## You are a servant: you know how to give those you serve what they want
+![remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me.jpg "Bend over in front of me while wearing a skimpy little skirt like that, and find out what my hands do to you.")  
 2022-08-12
 
 
-## You are a mermaid:
-![chiara-bautista_someone-else](./chiara-bautista_someone-else.jpg "I'd like to get a piece of your tail.")  
+## You are a mermaid: at least in your immagination
+![chiara-bautista_someone-else](./chiara-bautista_someone-else.jpg "In my immagination too. That's how I'll see you when I climb into the bath with you and come down on you to fuck your little fishy body.")  
 2022-08-05
 
 
-## You are a mermaid:
-![chiara-bautista_mermaid-marry-me](./chiara-bautista_mermaid-marry-me.jpg "I want you to eat my bone.")  
+## You are a mermaid: men should fear you
+![chiara-bautista_mermaid-marry-me](./chiara-bautista_mermaid-marry-me.jpg "But I still want you to eat my bone baby.")  
 2022-08-05
 
 
