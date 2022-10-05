@@ -120,7 +120,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-08-23
 
 
-## You are a vampire: a dangerous attraction
+## You are a vampire: vampires need love too
 ![Eating vampire pussy](./eatin-vamp-woman.jpg "I want to get under your skirts and taste your vampire pussy.")  
 2022-08-22
 
