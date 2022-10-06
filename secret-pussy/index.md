@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+
+## You are delicious: so hot, so wet
+![Noodles](./noodles.jpg "I want to eat you until your body goes as limp as a cooked noodle.")  
+2022-10-06
+
+
 ## You are delicious: everyone wants a bite of you
 ![Send Noods](./send-noods.jpg "But I want to slurp your hot wet noodles between my lips, and sink my teeth into your succulent meats.")  
 2022-10-01
