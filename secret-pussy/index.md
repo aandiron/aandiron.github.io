@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a hot wife: and you like it when your magic  affects other men
+![2xupsidedown](./2xupsidedown.jpg "I want your tits upside down and backwards. I want you to make me cum on your tits by watching you get fucked by your husband.")  
+2022-10-17
 
 ## You are delicious: so hot, so wet
 ![Noodles](./noodles.jpg "I want to eat you until your body goes as limp as a cooked noodle.")  
