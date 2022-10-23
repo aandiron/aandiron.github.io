@@ -31,10 +31,6 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-16
 
 
-## You are a pussy cat: you're adorable and people want to pet you
-![Cute cat](./cute-cat.jpg "I'll put my hand behind you and pet your pussy until you are in heat.")  
-2022-09-14
-
 
 ## You are a hot wife: your voice is the most sensuous sound ever transmitted over a wire
 ![Before she freshens up](./freshenup.jpg "you could call me and describe to me in great detail how much you like having cum licked out of your pussy.")  
@@ -54,30 +50,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-09-09
 
 
-## You are a witch: and your pussy has claws
-![Pussy cat claws](./witch-n-cat-claws.jpg "I'd like to claw your clothes off, my pussy cat witch.")  
-2022-09-08
-
-
-## You are a witch: this is the kind of pumpkin spice you really want
-![Ball gagged on a pumpkin](./ball-gagged-on-a-pumpkin.jpg "Sit on it slowly, let it slide up into your cunt, let the vegetable get pleasureable in you.")  
-2022-09-06
-
-
-## You are a witch: and you sell pumpkin spice?
-![Pumpkin Spice](./pumpkin-spice.jpg "Get on your knees, witch, and taste my pumpkin spice.")  
-2022-09-05
-
-
 ## You like it with some horror: but _this_ much horror?
 ![Alien DP](./not-used-to-this-consent-thing.jpg "Get your pussy and your tight ass all over that Alien double dick. Or under it, I suppose.")  
 2022-09-04
-
-
-## You are a hot wife: but are you up for what Morticia can take?
-![Morticia on the rack](./morticia-on-the-rack.jpg "Tie you up, stretch you out, make you think about what Gomez will do with his cock. Then get stretched out on his dick.")  
-2022-09-03
-
 
 ## You are sentimental: and first times are special
 ![Our First Time](./our-first-time.jpg "I wish I remembered our first time. That is a memory that would be precious to me, if I had it. If you remember it, I want you to tell me all about it.")  
@@ -92,11 +67,6 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ## You are a princess: watch out for the intentions of men
 ![Mulan about to get fucked](./mulan.jpg "I want to unpeel your pure-of-heart exterior and slip my cock into your private princess pussy.")  
 2022-08-31
-
-
-## You have curves: when you take off the clothes the world stops
-![Biggest Sorcerress removes her witchy dress](./biggest-sorceress2.jpg "I want to watch as you slip out of something tight. I want to watch your curves reveal themselves to me. And then I want to hold your curves under my big hands while I fuck you to pieces.")  
-2022-08-30
 
 
 ## You are a goddess: at least for people lucky enough to be in the know
@@ -114,24 +84,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-08-26
 
 
-## You are a witch: someone should put that assertion to the test
-![Witches Can't Get Pregnant](./witches-cant-get-pregnant.jpg "I want to cum in your cunt over and over again. I'll bet I can prove you aren't a witch.")  
-2022-08-25
-
-
 ## You are a rider: people like to see you spread your legs for the machine
 ![Crotch Rocket](./crotch-rocket.jpg "Bend your cute ass over a motorcycle and let me ride you from behind, you hot slut.")  
 2022-08-24
-
-
-## You give in: to the evil let loose upon the world
-![Demon raper](./demon-horn.jpg "...To the evil let loose upon your hot naked body.")  
-2022-08-23
-
-
-## You are a vampire: vampires need love too
-![Eating vampire pussy](./eatin-vamp-woman.jpg "I want to get under your skirts and taste your vampire pussy.")  
-2022-08-22
 
 
 ## You are a servant: everyone wants what you serve
