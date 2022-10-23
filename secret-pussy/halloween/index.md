@@ -7,7 +7,6 @@ layout: default
 
 [//]: # (---- Added in 2022 ----)
 
-![Roland_Topor-ghostcum.jpg](Roland_Topor-ghostcum.jpg)
 
 ![ball-gagged-on-a-pumpkin.jpg](ball-gagged-on-a-pumpkin.jpg)
 
@@ -51,6 +50,8 @@ layout: default
 
 ![not much there jpg](not-much-there.jpg)
 
+![trick or treat panel jpg](trick-or-treat-panel.jpg)
+
 ![pulled out by the pumpkin patch jpg](pulled-out-by-the-pumpkin-patch.jpg)
 
 ![pumpkin demon summoned jpg](pumpkin-demon-summoned.jpg)
@@ -61,7 +62,7 @@ layout: default
 
 ![pumpkin witch wings jpg](pumpkin-witch-wings.jpg)
 
-![trick or treat panel jpg](trick-or-treat-panel.jpg)
+![Roland_Topor-ghostcum.jpg](Roland_Topor-ghostcum.jpg)
 
 ![trick or treat right to left jpg](trick-or-treat-right-to-left.jpg)
 
