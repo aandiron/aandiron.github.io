@@ -7,7 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-## You are a hot wife: and you like it when your magic  affects other men
+
+## You like it a little rough: you like a big man pulling your head back by your hair
+![hair-puller](./hair-puller.jpg "And I like pulling you back along the lenght of my throbbing dick.")  
+2022-10-25
+
+## You are a hot wife: and you like it when your magic affects other men
 ![2xupsidedown](./2xupsidedown.jpg "I want your tits upside down and backwards. I want you to make me cum on your tits by watching you get fucked by your husband.")  
 2022-10-17
 
