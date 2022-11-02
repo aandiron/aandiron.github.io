@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You like it a little rough: you like the feeling of fingers around your neck
+![chocking-royalty](./chocking-royalty.jpg "And I like squeezing your neck in my hand while your cunt squeezes down on my cock")  
+2022-11-02
 
 ## You like it a little rough: you like a big man pulling your head back by your hair
 ![hair-puller](./hair-puller.jpg "And I like pulling you back along the lenght of my throbbing dick.")  
