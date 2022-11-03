@@ -12,7 +12,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-11-02
 
 ## You like it a little rough: you like a big man pulling your head back by your hair
-![hair-puller](./hair-puller.jpg "And I like pulling you back along the lenght of my throbbing dick.")  
+![hair-puller](./hair-puller.jpg "And I like pulling you back along the length of my throbbing dick.")  
 2022-10-25
 
 ## You are a hot wife: and you like it when your magic affects other men
@@ -22,7 +22,6 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ## You are delicious: so hot, so wet
 ![Noodles](./noodles.jpg "I want to eat you until your body goes as limp as a cooked noodle.")  
 2022-10-06
-
 
 ## You are delicious: everyone wants a bite of you
 ![Send Noods](./send-noods.jpg "But I want to slurp your hot wet noodles between my lips, and sink my teeth into your succulent meats.")  
