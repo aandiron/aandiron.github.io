@@ -7,8 +7,13 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+
+## You are a fantasy: roll the dice on a big man
+![Half-orc bonin](./half-orc-bonin.jpg "And feel that monster half-orc cock pounding into your sopping cunt from behind. Natural 20 bitch.")  
+2022-11-03
+
 ## You like it a little rough: you like the feeling of fingers around your neck
-![choking-royalty](./choking-royalty.jpg "And I like squeezing your neck in my hand while your cunt squeezes down on my cock")  
+![choking her highness](./choking-royalty.jpg "And I like squeezing your neck in my hand while your cunt squeezes down on my cock")  
 2022-11-02
 
 ## You like it a little rough: you like a big man pulling your head back by your hair
