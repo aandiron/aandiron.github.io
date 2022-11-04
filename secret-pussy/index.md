@@ -7,8 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a whore in the bedroom: secretly you like to be used
+![Labeled CumSlut](./cum-slut.jpg "I want to put my hand on the back of your head and push your beautiful lips down my shaft. I want to use your pretty litte mouth like a fucktoy until I shoot my cum down your throat. Swallow it all like you love it, slut.")  
+2022-11-03
 
-## You are a fantasy: roll the dice on a big man
+## You are a fantasy: roll the dice on a big monster
 ![Half-orc bonin](./half-orc-bonin.jpg "And feel that monster half-orc cock pounding into your sopping cunt from behind. Natural 20 bitch.")  
 2022-11-03
 
