@@ -1,5 +1,3 @@
-tied-to-your-chair.md
-Last modified: Sun Feb 27, 2022  11:55AM
 
 Well. I know you would never willingly desire me to fuck you. And drugging you with alcohol seems so... crass. I want to make you desire me while you are clear-headed and present. And I know how to do that, but I need your undivided attention. Doing that would take a little force. You might not like it at first. You might complain or even shout for help. So I would hold you down while I slipped a gag through your lips. I am quite strong. You would be helpless. I would then strip your clothes off, down to your panties and bra. I would bind you to your chair, with thick ropes and many turns. I would bind your legs up, and your hands down. You would be left with your pussy wide open, exposed, and protected by nothing but the thin fabric of your panties.
 
