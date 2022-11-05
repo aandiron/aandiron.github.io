@@ -9,7 +9,7 @@ These stories also generally attempt to go somewhere that others haven't. There'
 
 If I ever manage to successfully cast a spell with these stories, the reader will be left with the feeling that they had a bunch of filthy hirsute metalheads wearing stinking long-unwashed leather tear through their bedrooms on motorcycles with illegal exhaust modifications. If that sounds like the erotica you always wanted but never had, then get thee to me mailing list, because I might not be there yet, but that's where I want to go.
 
-		--- A.Andiron
+--A. Andiron
 
 
 

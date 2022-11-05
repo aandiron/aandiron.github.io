@@ -2,8 +2,6 @@
 layout: default
 ---
 
-* [About this project](./about.md)
-
 ## Stories available in corporate formats
 This web page is the source from which all other A.Andiron postings flow. But if you want to read stories in their polished formats, seek them out on these sites:
 * ~~Medium~~ (fuck Medium. I'm so tired of being censored.)
@@ -39,6 +37,7 @@ This web page is the source from which all other A.Andiron postings flow. But if
 If you like what you read, think about throwing a few dollars after an e-book. If everyone reading this right now paid $3, I would have like $9. But it would only take 10,000 people paying $3 for me to make a living doing this. (Yes I could live on that.) There probably are 10,000 people out of the 7 billion in the world who would be willing to pay that. It could be you! If you support my creative project, I'll support yours! Send me your link. It could turn into a some kind of whole creative-go-around system.
 * You can support this project by purchasing an ebook:
 	* [Amazon Kindle](https://www.amazon.com/s?i=digital-text&rh=p_27%3AA.+Andiron)
+* [About this project](./about.md)
 
 ## Mailing list
 
