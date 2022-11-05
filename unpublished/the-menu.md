@@ -100,7 +100,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 ---------------------------------------
 
-* See what's [already in the collection](./the-menu_already-collected.md)
+## See what's [already in the collection](./the-menu_already-collected.md)
 
 
 
