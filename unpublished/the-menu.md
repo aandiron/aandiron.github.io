@@ -2,23 +2,23 @@
 layout: default
 ---
 
-# The Menu -- In Progress
-Things I want in my collection, and prices I'm willing to pay to get them. I seriously want to complete this entire series someday. Prices are negotiable.  
+# The Menu
+The goal is to compile a body of work, a collection. Like my music collection, I want it to be comprehensive and widely-varying. But in this case, entirely created by the same artist. These works are incredibly valuable to me, not just for their aesthetics and function (and by 'function' I mean: makes me cum), but because they document a relationship between myself and the artist. Like that between any patron and an artist. Every artist is a whore, so let the whore also be the artist. Prices listed are what I offer to the artist, but they are negotiable. As is often the case, part of the relationship between the patron and the artist is the patron takes advantage of the relationship to aquire works at a lower price in exchange for the ongoing support. I don't take that relationship for granted. I appreciate the true value of the artist here, I'm just not sure I could afford her at her true value.  
 **Recently added items in bold.**
 
 
 ## Top priorities!
 * [ ] $40 - **Break the fast and send me a topless photo today!**
 
-* [ ] $10 - You're eating a banana (peeled) pic
+* [ ] $20 - **Any pg-13 pic hot enough to make me cum** -- send some samples and let me them to the test.
 
-* [ ] $30 - You're wearing something lacey and see-through and showing your whole body
+* [ ] $20 - **(increased price!) You're eating a banana (peeled) pic**
 
 * [ ] $50 - **Your beautiful tit in your hand, your cute tongue extended, licking your own nipple**
 
-* [ ] $15 - **you are wearing a bikini in a recent hot pic**
+* [ ] $15 - **You are wearing a bikini in a recent hot pic**
 
-* [ ] $50 - YOU are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!
+* [ ] $50 - **You are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!**
 
 * [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.**
 
@@ -28,9 +28,11 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $75 - **You're wearing a soaking wet white t-shirt, and no panties**
 
-* [ ] $30 - **You have a tentacle pressed between your tits ala a good titty fucking**
+* [ ] $30 - **You have a tentacle pressed between your tits like you're getting a good slithery titty fucking**
 
-* [ ] $30 - **Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle**
+* [ ] $30 - **Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle or other dildo**
+
+* [ ] $30 - You're wearing something lacey and see-through and showing your whole body
 
 * [ ] $50 - Tight shirt, no bra, nipples showing; in panties
 
@@ -48,9 +50,9 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $75 - let me listen to you cum on the phone while I jack off
 
-* [ ] $100 - real interactive phone sex with me
+* [ ] $100 - interactive no-holds-barred phone sex with me
 
-* [ ] $600 - POV video where you talk directly to the camera with personal references, and make yourself cum as if I'm fucking you. At least 10 minutes of content (keep that orgasm on edge!) 
+* [ ] $600 - POV video where you talk directly to the camera with personal references, and make yourself cum as if I'm fucking you. At least 10 minutes of content (so I can keep my orgasm on edge!) 
 
 
 ## Hottest Fantasies
@@ -90,56 +92,16 @@ Things I want in my collection, and prices I'm willing to pay to get them. I ser
 
 * [ ] $200 - **We have a hot makeout session together in real life. Only counts if we both get really turned on, and don't do anything about it!**
 
+* [ ] $300 - **You tie my hands behind me and give me the lap dance I've always imagined you giving -- plus a special bonus if you can make me cum**
+
 * [ ] $500 - you suck me off, in-person in real life
 
 * [ ] $1500 - I get you to whore for me for a whole evening in-person and I can do whatever I want with you -- cum in *all* your holes. (You can be a little drunk -- but not TOO drunk.) $500 bonus if you let me record it.
 
 ---------------------------------------
 
-## Already in collection:
-* [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
+## [Already in collection](./the-menu_already-collected.md):
 
-* [X] $15 - sideboob and/or underbutt pic (no limit to how many of these I will pay for)
-
-* [X] $15 - Tight shirt, no bra, nipples showing
-
-* [X] $20 - titties (any time, any way. No limit to how many of these I will pay for.)
-
-* [X] $20 - you pull your shirt up and hold it in your teeth while taking a titty pic
-
-* [X] $0 - anonymous but sexy cleavage with hands counting money (I need it to go with my new story!)
-
-* [X] $10 - you in glasses
-
-* [X] $10 - any hot clothed pic you take just for me. Has to be _hot_ though.
-
-* [X] $15 - Serious cameltoe
-
-* [X] $25 - wearing collar or choker, topless 
-
-* [X] $30 - full body, with just your panties on
-
-* [X] $35 - perfect ass in a thong pic
-
-* [X] $40 - Perfect ass pic
-
-* [X] $40 - you heavily pregnant and naked
-
-* [X] $60 - Perfect ass pic -- bent over and showing some pretty pussy
-
-* [X] $75 - full body naked, vulnerable, and hot; waiting-to-be-taken, legs spread pic
-
-* [X] $100 - video of you making yourself cum
-
-* [X] $30 - read something I wrote, get soaking wet, make yourself cum
-
-* [X] $30 - make yourself cum thinking about me (no pics or proof required; $10 bonus if you make yourself squirt!)
-
-* [X] $300 - NAKED video of you slowly stripping until you are touching your pussy and masturbating. ~10 minutes of content.
-
-
-
-**Please note:** on the open market you are worth _way_ more than these prices.  These prices are sort of subsidized by our genuine friendship. Don't think I take that for granted. I totally appreciate your true value -- I'm just not sure I could afford it!
 
 
 
