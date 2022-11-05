@@ -4,8 +4,6 @@ layout: default
 
 
 # Arrival
-## By A. Andiron
-
 
 He tried to remember. As far as he could make out, it had been ten years since he has last seen her. That made him feel old. In all that time, they always kept in touch, as they went through various 20-something phases, and then 30-something phases. Sometime they were closer, sending messages every day, other times long gaps of months would slip by without a peep. It didn't matter. There was always something there that fell immediately back into place as soon as they picked up the conversation again. And the fact that they had been in touch for so long without seeing each other was precisely the thing that made him feel old.
 

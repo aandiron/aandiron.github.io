@@ -3,6 +3,7 @@ layout: default
 ---
 
 # How to Make a Whore
+![htmw-illo.png](./htmw-illo.png)
 
 "Excuse me you two, it's time for me to spend a moment in the WC." My
 old friend Holly said, rising from the table with its white tablecloth
