@@ -10,6 +10,7 @@ This web page is the source from which all other A.Andiron postings flow. But if
 * [GoodReads](https://www.goodreads.com/author/show/17640383.A_Andiron)
 
 ## Stories
+* [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/)
 * [The Woman-Machine](./stories/the-woman-machine.md) (And it's sister piece: [The Man-Machine](./stories/the_man_machine.md))
 * [The Architect](./stories/a.andiron_The-Architect.md)
 * [Along The Border](./stories/along-the-border.md)
@@ -17,7 +18,6 @@ This web page is the source from which all other A.Andiron postings flow. But if
 * [How to Make a Whore](./stories/Part1_How-to-Make-a-Whore.md)
 * [Your Liquid Lips](./stories/liquidlips.md)
 * [How the Mouse Takes the Cheese](./stories/mousetrap.md)
-* [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/)
 * [Tremble the Flowering Wood](./stories/Tremble_the_Flowering_Wood.md)
 * [Binding Off](./stories/Binding-Off_final_ed1.md)
 * [How To Tie A Handcuff Knot](./stories/handcuffs-final-ed1.md)
