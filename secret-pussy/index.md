@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+
+## You sometimes relent: you know when you have to do your duty
+![I.O.U.](./i-o-u.jpg "And when you do your duty by me, I'll make you take it hard core. The 'and stuff' part is going to break your tough will. I'm going to fill you with cum, and melt you with orgasms.")  
+2022-11-06
+
 ## You are a whore in the bedroom: secretly you like to be used
 ![Labeled CumSlut](./cum-slut.jpg "I want to put my hand on the back of your head and push your beautiful lips down my shaft. I want to use your pretty litte mouth like a fucktoy until I shoot my cum down your throat. Swallow it all like you love it, slut.")  
 2022-11-03
