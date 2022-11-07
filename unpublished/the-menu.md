@@ -8,7 +8,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 
 ## Top priorities!
-* [X] $40 - **Break the fast and send me a topless photo today!**
+* [X] $40 - Break the fast and send me a topless photo today!
 
 * [ ] $20 - **Any pg-13 pic hot enough to make me cum** -- send some samples and let me them to the test.
 
@@ -30,7 +30,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $30 - **You have a tentacle pressed between your tits like you're getting a good slithery titty fucking**
 
-* [X] $30 - **Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle or other dildo**
+* [X] $30 - Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle or other dildo
 
 * [ ] $30 - You're wearing something lacey and see-through and showing your whole body
 
