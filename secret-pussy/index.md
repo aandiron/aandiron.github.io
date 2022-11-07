@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a fantasy: you could be a cartoon character too
+![Cum all over Raven](./cum-all-over-raven.jpg "Let the shape-changer spray his hot sticky cum all over your body, and run all over you.")  
+2022-11-07
 
 ## You sometimes relent: you know when you have to do your duty
 ![I.O.U.](./i-o-u.jpg "And when you do your duty by me, I'll make you take it hard core. The 'and stuff' part is going to break your tough will. I'm going to fill you with cum, and melt you with orgasms.")  
@@ -16,7 +19,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ![Labeled CumSlut](./cum-slut.jpg "I want to put my hand on the back of your head and push your beautiful lips down my shaft. I want to use your pretty litte mouth like a fucktoy until I shoot my cum down your throat. Swallow it all like you love it, slut.")  
 2022-11-03
 
-## You are a fantasy: roll the dice on a big monster
+##  roll the dice on a big monster
 ![Half-orc bonin](./half-orc-bonin.jpg "And feel that monster half-orc cock pounding into your sopping cunt from behind. Natural 20 bitch.")  
 2022-11-03
 
