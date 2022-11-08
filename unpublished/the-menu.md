@@ -10,25 +10,27 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 ## Top priorities!
 * [X] $40 - Break the fast and send me a topless photo today!
 
-* [ ] $20 - **Any pg-13 pic hot enough to make me cum** -- send some samples and let me them to the test.
+* [ ] $20 - **Any pg-13 pic hot enough to make me cum** -- send some samples and let me put them to the test.
 
 * [ ] $20 - You're eating a banana (peeled) pic
 
 * [ ] $50 - **Your beautiful tit in your hand, your cute tongue extended, licking your own nipple**
 
-* [ ] $15 - **You are wearing a bikini in a recent hot pic**
+* [ ] $15 - You are wearing a bikini in a recent hot pic
 
-* [ ] $50 - **You are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!**
+* [ ] $100 - **(price doubled!) You are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!**
 
-* [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.**
+* [ ] $30 - You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.
 
-* [ ] $20 - **You're wearing a soaking wet white t-shirt**
+* [ ] $20 - You're wearing a soaking wet white t-shirt
 
-* [ ] $40 - **You're wearing a soaking wet white t-shirt, and panties**
+* [ ] $40 - You're wearing a soaking wet white t-shirt, and panties
 
-* [ ] $75 - **You're wearing a soaking wet white t-shirt, and no panties**
+* [ ] $75 - You're wearing a soaking wet white t-shirt, and no panties
 
 * [ ] $50 - **(increased price!) You have a tentacle pressed between your tits like you're getting a good slithery titty fucking**
+
+* [ ] $30 - **you are running your tongue up the side of a tentacle or other dildo**
 
 * [X] $30 - Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle or other dildo
 
@@ -58,6 +60,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 ## Hottest Fantasies
 * [ ] $50 - Sitting on desk, legs spread, up-skirt pic. $100 if you aren't wearing panties. $150 for a series of a few progressively hotter pics leading to a pussy shot.
 
+* [ ] $40 - **a picture of your fingers, soaking wet from being inside your cunt**
+
 * [ ] $75 - Another perfect ass pic, bent over and showing some pretty pussy -- but completely naked (show the arc of your naked back.)
 
 * [ ] $75 - pretty pussy pic (not because I love close-ups, but because it's just so dirty I want it in my collection)
@@ -74,7 +78,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $100 - while sucking off a dude, insert your vibrator and make yourself cum imagining I am fucking you from behind at the same time, ala *How to Make a Whore*. 
 
-* [ ] $100 - pic of you fucking a tentacle
+* [ ] $120 - **(price increase!) pic of you fucking a tentacle**
 
 * [ ] $200 - video of you fucking a tentacle
 
