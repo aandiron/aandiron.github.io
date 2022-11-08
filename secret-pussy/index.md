@@ -5,7 +5,7 @@ layout: default
 # Secret Pussy -- A Specially Curated Collection For One Special Person
 A not-for-public-consumption collection to generate inspiration for my stories. Just for *you* -- you know who you are.
 
-* [Halloween-Themed Porn -- Who knew?](./halloween/index.md)
+* [Bonus: So Much Halloween-Themed Porn -- Who knew?](./halloween/index.md)
 
 ----------------------------------------
 
