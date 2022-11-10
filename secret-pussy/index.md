@@ -9,6 +9,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a hot wife: let me tell you -- you *need* two men
+![2 Dicks Cum All Over](./two-dicks-cum-allover.jpg "You need more cum. You need to make two guys cum on you at once. You need to be bathed in cum. It's the only appropriate annointing due for your hotness.")  
+2022-11-10
+
 ## You are a hot wife: you'll never be wholly satisfied with one man
 ![Have another one](./have-another-one.jpg "Secretly, you long to have two cock thrusting into you, making you feel more filled with rock-hard man than ever before, stretching you your cunt and your ass, driving deep inside you from all sides, filling you with their hot cum.")  
 2022-11-08
