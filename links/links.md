@@ -28,6 +28,8 @@ Links to interesting writing and other things by other people.
 * https://web.archive.org/web/20010201072400/http://www.dolphinsex.org/
 * https://www.nytimes.com/2022/05/27/science/cockroach-sugar-sex.html 
 * https://www.nytimes.com/2020/04/24/opinion/sunday/covid-nude-selfies.html
+* https://www.youtube.com/watch?v=OvuaymmHO_w&t=232s
+* https://www.youtube.com/watch?v=6-1Ue0FFrHY
 
 
 
