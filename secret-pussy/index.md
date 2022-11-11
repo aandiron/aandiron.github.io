@@ -9,6 +9,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a hot wife: two men *will* do the job
+![Cartoon DP](./cartoonDP.jpg "Stand between them and spread your legs wide, two big dicks filling you deep inside.")  
+2022-11-11
+
 ## You are a hot wife: let me tell you -- you *need* two men
 ![2 Dicks Cum All Over](./two-dicks-cum-allover.jpg "You need more cum. You need to make two guys cum on you at once. You need to be bathed in cum. It's the only appropriate annointing due for your hotness.")  
 2022-11-10
