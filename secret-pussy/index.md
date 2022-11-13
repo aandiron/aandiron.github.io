@@ -10,8 +10,8 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ----------------------------------------
 
 
-## You are a whore in the bedroom: you desire to sell yourself to the highest bidder
-![Harlot and gold coins](./harlot-and-gold-coins.jpg "I want to buy your body like a choice piece of meat. And then prepare it and consume it in the manner most statisfying to myself.")  
+## You are a whore in the bedroom: you'll sell pieces of yourself to the right man holding the bag of gold
+![Harlot and gold coins](./harlot-and-gold-coins.jpg "I want to select and buy what I want from your body like choosing a piece of fruit. And then prepare it and consume it in the manner most statisfying to myself.")  
 2022-11-13
 
 ## You are a hot wife: two men *will* do the job
