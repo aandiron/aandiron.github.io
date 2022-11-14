@@ -9,6 +9,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you want your man to put you up against the wall
+![Against the wall, in sneakers](./against-the-wall-in-sneakers.jpg "I want to see your beautiful tits pressed flat against the wall, and I want you to feel pinned on my big cock -- s oyou cannot get ahead of it.")  
+2022-11-14
 
 ## You are a whore in the bedroom: you'll sell pieces of yourself to the right man holding the bag of gold
 ![Harlot and gold coins](./harlot-and-gold-coins.jpg "I want to select and buy what I want from your body like choosing a piece of fruit. And then prepare it and consume it in the manner most statisfying to myself.")  
