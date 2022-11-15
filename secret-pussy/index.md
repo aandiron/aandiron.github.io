@@ -9,6 +9,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+[//]: # (COMFY: cum skin treatment)
+
+[//]: # (COMFY: acronym)
+
+
 ## You like it hot: you want your man to show how inspired he is by your pretty face 
 ![Yes Cum on my Face 1](./yes-cum-on-my-face.jpg "I want to spurt my cum all over your beautiful face.")  
 2022-11-15
