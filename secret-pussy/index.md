@@ -9,6 +9,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You like it hot: you want your man to show how inspired he is by your pretty face 
+![Yes Cum on my Face 1](./yes-cum-on-my-face.jpg "I want to spurt my cum all over your beautiful face.")  
+2022-11-15
+
 ## You are kind of an exhibitionist: you want your man to put you up against the wall
 ![Against the wall, in sneakers](./against-the-wall-in-sneakers.jpg "I want to see your beautiful tits pressed flat against the wall, and I want you to feel pinned on my big cock -- s oyou cannot get ahead of it.")  
 2022-11-14
