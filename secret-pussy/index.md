@@ -5,8 +5,6 @@ layout: default
 # Secret Pussy -- A Specially Curated Collection For One Special Person
 A not-for-public-consumption collection to generate inspiration for my stories. Just for *you* -- you know who you are.
 
-* [Bonus: So Much Halloween-Themed Porn -- Who knew?](./halloween/index.md)
-
 ----------------------------------------
 
 [//]: # (COMFY: cum skin treatment)
@@ -15,7 +13,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 
 ## You like it hot: you want your man to show how inspired he is by your pretty face 
-![Yes Cum on my Face 1](./yes-cum-on-my-face.jpg "I want to spurt my cum all over your beautiful face.")  
+![Yes Cum on my Face 1](./yes-cum-on-my-face-1.jpg "I want to spurt my cum all over your beautiful face.")  
 2022-11-15
 
 ## You are kind of an exhibitionist: you want your man to put you up against the wall
@@ -161,6 +159,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ## You are a mermaid: men should fear you
 ![chiara-bautista_mermaid-marry-me](./chiara-bautista_mermaid-marry-me.jpg "But I still want you to eat my bone baby.")  
 2022-08-05
+
+----------------------------------------
+
+* [Bonus: So Much Halloween-Themed Porn -- Who knew?](./halloween/index.md)
 
 
 
