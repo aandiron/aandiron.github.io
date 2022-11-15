@@ -12,7 +12,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 [//]: # (COMFY: acronym)
 
 
-## You like it hot: you want your man to show how inspired he is by your pretty face 
+## You like it a little gross: you want your man to show how inspired he is by your pretty face 
 ![Yes Cum on my Face 1](./yes-cum-on-my-face-1.jpg "I want to spurt my cum all over your beautiful face.")  
 2022-11-15
 
