@@ -11,6 +11,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 [//]: # (COMFY: acronym)
 
+## You like it a little gross: C.O.M.F.Y = Come On My Face, Yes!
+![Yes Cum on my Face 2](./yes-cum-on-my-face-2.jpg "You'd love to have my cum splatterd all over your pretty face, running down the side of your nose, dripping into your mouth, getting all over your lips and chin.")  
+2022-11-16
 
 ## You like it a little gross: you want your man to show how inspired he is by your pretty face 
 ![Yes Cum on my Face 1](./yes-cum-on-my-face-1.jpg "I want to spurt my cum all over your beautiful face.")  
