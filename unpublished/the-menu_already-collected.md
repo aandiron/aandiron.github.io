@@ -4,6 +4,8 @@ layout: default
 
 ## Already in collection:
 
+* [X] $40 - Break the fast and send me a topless photo today!
+
 * [X] $40 - audio recording of yourself cumming (any time, any way, no limit to how many of these I will pay for)
 
 * [X] $15 - sideboob and/or underbutt pic (no limit to how many of these I will pay for)
@@ -27,6 +29,8 @@ layout: default
 * [X] $30 - full body, with just your panties on
 
 * [X] $35 - perfect ass in a thong pic
+
+* [X] $30 - Two-lips-o-dildo: your beautiful lips wrapped are around a tentacle or other dildo
 
 * [X] $40 - Perfect ass pic
 
