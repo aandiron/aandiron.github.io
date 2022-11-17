@@ -7,9 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-[//]: # (COMFY: cum skin treatment)
-
-[//]: # (COMFY: acronym)
+## You like it a little gross: you want your skin to have a healthy glow
+![Yes Cum on my Face 3](./yes-cum-on-my-face-3.jpg "I want to spray my hot milt all over your cute face, and then put my palm on your face and rub it into your skin so everyone will believe you have an rich skin-care regime.")  
+2022-11-17
 
 ## You like it a little gross: C.O.M.F.Y = Come On My Face, Yes!
 ![Yes Cum on my Face 2](./yes-cum-on-my-face-2.jpg "You'd love to have my cum splatterd all over your pretty face, running down the side of your nose, dripping into your mouth, getting all over your lips and chin.")  
