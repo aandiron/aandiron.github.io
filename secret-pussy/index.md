@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+
+## You are a fantasy: you need a Spike in your Buffy
+![Spike in Buffy](./spike-in-buffys-ass.jpg "Go on patrol. I'll attack you when it's darkest. I'll get your legs apart and slide my cock up your tight ass. I'll sink my teeth into your beautiful neck.")  
+2022-11-18
+
 ## You like it a little gross: you want your skin to have a healthy glow
 ![Yes Cum on my Face 3](./yes-cum-on-my-face-3.jpg "I want to spray my hot milt all over your cute face, and then put my palm on your face and rub it into your skin so everyone will believe you have an rich skin-care regime.")  
 2022-11-17
