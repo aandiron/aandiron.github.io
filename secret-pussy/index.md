@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a whore in the bedroom: you know who you want in your bed, and you won't let anyone stop you from having him
+![Just wish they didn't do it on your bed](./just-wish-they-didnt-do-it-on-your-bed.jpg "I'm coming for you lady. Bury your face in your pillow and muffle your moans while I slide my cock into you from behind, until my cum spills out of your cunt and all over your clean sheets.")  
+2022-11-20
+
 ## You are a rider: choose carefully where you take your rides
 ![In the flowers](./in-the-flowers.jpg "Spread your legs, straddle me, and ease your wet pussy down my hard shaft. I'll put my hands on your hips and help guide you on your journey along it.")  
 2022-11-19
