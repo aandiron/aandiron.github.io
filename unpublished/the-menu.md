@@ -30,6 +30,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $30 - **you are running your tongue up the side of a tentacle or other dildo**
 
+* [ ] $50 - **a short video of your sliding your lips up and down the length of a dildo**
+
 * [ ] $30 - You're wearing something lacey and see-through and showing your whole body
 
 * [ ] $50 - Tight shirt, no bra, nipples showing; in panties
