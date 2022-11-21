@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you want your man to admire the whole of your beautiful body while he does you
+![Titties in mirro, from behind](./titties-mirror-from-behind.jpg "I want your as in my hands, my cock sliding into your wet cunt -- AND I want to see your perfect tits bouncing up and down while I pound you from behind. Bend over in front of the mirror, and present your hot cunt as an offering to me.")  
+2022-11-21
+
 ## You are a whore in the bedroom: you know who you want in your bed, and you won't let anyone stop you from having him
 ![Just wish they didn't do it on your bed](./just-wish-they-didnt-do-it-on-your-bed.jpg "I'm coming for you lady. Bury your face in your pillow and muffle your moans while I slide my cock into you from behind, until my cum spills out of your cunt and all over your clean sheets.")  
 2022-11-20
