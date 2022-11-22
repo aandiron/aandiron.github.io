@@ -24,6 +24,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $40 - You're wearing a soaking wet white t-shirt, and panties
 
+* [ ] $30 - **You're wearing nothing but a long scarf wrapped around your neck (scarf can be tastefully arranged to make it R-rated)**
+
 * [ ] $75 - You're wearing a soaking wet white t-shirt, and no panties
 
 * [ ] $50 - **(increased price!) You have a tentacle pressed between your tits like you're getting a good slithery titty fucking**
