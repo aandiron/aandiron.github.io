@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You sometimes relent: you want him to eat you when it's good
+![Eating her out](./eating-her-out.jpg "Spread you legs. I'll raise your hips up and lean in and partake of your offered cunt. I want to slide my tongu into your gash, strain to push it into you until you are creaing wet all over my face. I'll slide my tongue over your clit until I make you cum and you squeze my head between your lovely thighs.")  
+2022-11-22
+
+
 ## You are kind of an exhibitionist: you want your man to admire the whole of your beautiful body while he does you
 ![Titties in mirro, from behind](./titties-mirror-from-behind.jpg "I want your as in my hands, my cock sliding into your wet cunt -- AND I want to see your perfect tits bouncing up and down while I pound you from behind. Bend over in front of the mirror, and present your hot cunt as an offering to me.")  
 2022-11-21
