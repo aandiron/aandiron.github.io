@@ -32,6 +32,7 @@ Links to interesting writing and other things by other people.
 * https://harpers.org/archive/2022/03/voice-lessons-how-coaches-get-in-athletes-heads/
 	* "When you make a mistake, he told me, you feel what your coach feels. You don’t just have your own disappointment and anger, but also hers."
 * https://www.youtube.com/watch?v=6-1Ue0FFrHY
+* https://vimeo.com/11986796
 
 
 
