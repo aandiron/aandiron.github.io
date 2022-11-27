@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you make sure your man knows when you enjoy it.
+![Earplugs](./earplugs.jpg "I love the sounds you make when you cum. I waant to hear the sound you make when my cock thrusts up into your cunt.")  
+2022-11-26
+
+
 ## You sometimes relent: you want him to eat you when it's good
 ![Eating her out](./eating-her-out.jpg "Spread you legs. I'll raise your hips up and lean in and partake of your offered cunt. I want to slide my tongu into your gash, strain to push it into you until you are creaing wet all over my face. I'll slide my tongue over your clit until I make you cum and you squeze my head between your lovely thighs.")  
 2022-11-22
