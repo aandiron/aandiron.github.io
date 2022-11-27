@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## 
+![Long-haired cunning linguist](./long-haired-cunning-linguist.jpg "I love the sounds you make when you cum. I waant to hear the sound you make when my cock thrusts up into your cunt.")  
+2022-11-27
+
 ## You are kind of an exhibitionist: you make sure your man knows when you enjoy it.
 ![Earplugs](./earplugs.jpg "I love the sounds you make when you cum. I waant to hear the sound you make when my cock thrusts up into your cunt.")  
 2022-11-26
