@@ -7,8 +7,8 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-## 
-![Long-haired cunning linguist](./long-haired-cunning-linguist.jpg "I love the sounds you make when you cum. I waant to hear the sound you make when my cock thrusts up into your cunt.")  
+## You sometimes relent: let his head rise up between your legs
+![Long-haired cunning linguist](./long-haired-cunning-linguist.jpg "I want to taste your sweet pussy. Ride my tongue over your tiny clit and make you understand how much I love you with you brilliant linguisitic skills. I want to hold your ass in my hands and hold your cun against my lips so you can't get away from me. I want to control your whole body with just the tip of my tongue.")  
 2022-11-27
 
 ## You are kind of an exhibitionist: you make sure your man knows when you enjoy it.
