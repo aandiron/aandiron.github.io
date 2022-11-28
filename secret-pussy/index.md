@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: And sometimes you are full of sympathy
+![My boyfriend beat you up](./im-sorry-my-boyfriend-beat-you-up.jpg "Hold back your screams while I quickyly slip it inside your wet cunt and fuck you fast and furiously and leave your panties soaked and my cum dripping out of you.")  
+2022-11-28
+
 ## You sometimes relent: let his head rise up between your legs
 ![Long-haired cunning linguist](./long-haired-cunning-linguist.jpg "I want to taste your sweet pussy. Ride my tongue over your tiny clit and make you understand how much I love you with you brilliant linguisitic skills. I want to hold your ass in my hands and hold your cun against my lips so you can't get away from me. I want to control your whole body with just the tip of my tongue.")  
 2022-11-27
