@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a rider: nobody rides cock like you do
+![Bite lip, cum-dick-pussy](./bite-lip-cum-dick-pussy.jpg "I want you to climb on me so I can grip your ass in my hands while you grind your hips on me in that special way that only you can. When you mek me cum, I want to slip out of your tight wet gash and shoot my cum hot and sticky all over your belly.")  
+2022-11-29
+
+
 ## You are kind of an exhibitionist: And sometimes you are full of sympathy
 ![My boyfriend beat you up](./im-sorry-my-boyfriend-beat-you-up.jpg "Hold back your screams while I quickyly slip it inside your wet cunt and fuck you fast and furiously and leave your panties soaked and my cum dripping out of you.")  
 2022-11-28
