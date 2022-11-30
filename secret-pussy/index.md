@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You like it a little rough: it's good to be impaled once in a while
+![About to impale](./22.1126bby.jpg "I want to hold you above my throbbing hard cock, and susend you there in your antiipation of how mu cock is about to fill you up. Because you know that when it goes into your tight as it's not going to ease back until you are filled with my hot cum.")  
+2022-11-30
+
+
 ## You are a rider: reverse cowgirl or go home
 ![Bite lip, cum-dick-pussy](./bite-lip-cum-dick-pussy.jpg "I want you to climb on me so I can grip your ass in my hands while you grind your hips on me in that special way that only you can. When you mek me cum, I want to slip out of your tight wet gash and shoot my cum hot and sticky all over your belly.")  
 2022-11-29
