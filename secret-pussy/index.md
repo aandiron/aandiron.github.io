@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a hot wife: and a hot mommy too
+![Squeezing Mommy's tits](./squeezing-mommys-tits.jpg "I want to hold your perfect full mommy tis in my hands, and slide my cock into your tight wet lady slit.")  
+2022-12-01
+
+
 ## You like it a little rough: it's good to be impaled once in a while
 ![About to impale](./22.1126abby.jpg "I want to hold you above my throbbing hard cock, and susend you there in your antiipation of how mu cock is about to fill you up. Because you know that when it goes into your tight as it's not going to ease back until you are filled with my hot cum.")  
 2022-11-30
