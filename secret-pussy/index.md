@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a tiny fairy: short girl problems
+![Kissing shorty](./kissing-shorty.jpg "Make my dick hard by pulling your shirt up and kissing me hottie.")  
+2022-12-02
+
 ## You are a hot wife: and a hot mommy too
 ![Squeezing Mommy's tits](./squeezing-mommys-tits.jpg "I want to hold your perfect full mommy tis in my hands, and slide my cock into your tight wet lady slit.")  
 2022-12-01
