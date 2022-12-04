@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a fantasy: you know how to get by the guards
+![City Guards Seductive +1](./city-guards-seductiveplus1.jpg "I'll give you permission to pass me -- if you can hold my cock in your mouth while I cum down your throat.")  
+2022-12-04
+
 ## You are a tiny fairy: short girl problems
 ![Kissing shorty](./kissing-shorty.jpg "Make my dick hard by pulling your shirt up and kissing me hottie.")  
 2022-12-02
