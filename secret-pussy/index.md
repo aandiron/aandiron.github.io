@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You're a nice respectable lady: nobody knows you like it when the right man puts his hand down your panties
+![Hand down panties](./office-hand-down-panties.jpg "Take your skirt off. Come over here and it in my lap. Spread your legs a littl bit.Lean back against me.Those panties you have on are pretty. If I put my big hand down here and touch yr pussy... do you like that?")  
+2022-12-05
+
 ## You are a fantasy: you know how to get by the guards
 ![City Guards Seductive +1](./city-guards-seductiveplus1.jpg "I'll give you permission to pass me -- if you can hold my cock in your mouth while I cum down your throat.")  
 2022-12-04
@@ -43,7 +47,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 2022-11-26
 
 
-## You sometimes relent: you want him to eat you when it's good
+## You are delicious: you want him to eat you when it's good
 ![Eating her out](./eating-her-out.jpg "Spread you legs. I'll raise your hips up and lean in and partake of your offered cunt. I want to slide my tongu into your gash, strain to push it into you until you are creaing wet all over my face. I'll slide my tongue over your clit until I make you cum and you squeze my head between your lovely thighs.")  
 2022-11-22
 
