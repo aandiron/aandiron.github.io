@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a tiny fairy: susceptible to being ravaged by monsters
+![Orc Bukake](./orc-bukake.jpg "Their rough animal hands with inescapably stronggrip -- like being held down by a chimpanzee -- pin you to the ground. They circle up learing at your clean naked beauty, and like they can't help themselves because of your hotness their dicks grow uniformly hard. And not as one, they start cumming on you, squirts of hot stinking cum tainting your beautiful body.")  
+2022-12-07
+
 ## You're a nice respectable lady: nobody knows you like it when the right man puts his hand down your panties
 ![Hand down panties](./office-hand-down-panties.jpg "Take your skirt off. Come over here and it in my lap. Spread your legs a littl bit.Lean back against me.Those panties you have on are pretty. If I put my big hand down here and touch yr pussy... do you like that?")  
 2022-12-05
