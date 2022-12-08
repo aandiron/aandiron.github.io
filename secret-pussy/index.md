@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You like it a little gross: and magic doesn't always go your way
+![Magic Tentacles](./magic-tentacles.jpg "You summon evil into the world. It ravages you in public, ramming its probing fingers up your cunt and gripping and twisting muscularly inside you. You lose control of the evil.")  
+2022-12-08
+
 ## You are a tiny fairy: susceptible to being ravaged by monsters
 ![Orc Bukake](./orc-bukake.jpg "Their rough animal hands with inescapably stronggrip -- like being held down by a chimpanzee -- pin you to the ground. They circle up learing at your clean naked beauty, and like they can't help themselves because of your hotness their dicks grow uniformly hard. And not as one, they start cumming on you, squirts of hot stinking cum tainting your beautiful body.")  
 2022-12-07
