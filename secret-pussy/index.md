@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a rider: regular cowgirl is good too
+![Cowgirl on the Couch](./cowgirl-on-the-couch.jpg "Slide your tight cunt up and down my shaft while I bury my face between your tits. Though I wish I could watch your amazing round ass banging up and down around my cock at the same time!")  
+2022-12-09
+
 ## You like it a little gross: and magic doesn't always go your way
 ![Magic Tentacles](./magic-tentacles.jpg "You summon evil into the world. It ravages you in public, ramming its probing fingers up your cunt and gripping and twisting muscularly inside you. You lose control of the evil.")  
 2022-12-08
