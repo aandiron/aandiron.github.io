@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a whore in the bedroom: the men want to give it all to you
+![You love her while you give it all to me](./you-love-her-while-you-give-it-all-to-me.jpg "I want to yive you all my cum on the daily. Every day I want you to bend over in front of me, and let me watch your cute round ass while I slide my cock into you, until I fill you with hot jizz and it drips from your soaking cunt.")  
+2022-12-10
+
 ## You are a rider: regular cowgirl is good too
 ![Cowgirl on the Couch](./cowgirl-on-the-couch.jpg "Slide your tight cunt up and down my shaft while I bury my face between your tits. Though I wish I could watch your amazing round ass banging up and down around my cock at the same time!")  
 2022-12-09
