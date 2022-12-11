@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you like to take it outside
+![A tight space](./a-tight-space.jpg "I want to strip you nearly naked, and slide my cock into you from behind, with the wind blowing across your cute ass, and the sun warming us while I fuck you mercilessly and you scream out loud in pleasure.")  
+2022-12-11
+
 ## You are a whore in the bedroom: the men want to give it all to you
 ![You love her while you give it all to me](./you-love-her-while-you-give-it-all-to-me.jpg "I want to yive you all my cum on the daily. Every day I want you to bend over in front of me, and let me watch your cute round ass while I slide my cock into you, until I fill you with hot jizz and it drips from your soaking cunt.")  
 2022-12-10
