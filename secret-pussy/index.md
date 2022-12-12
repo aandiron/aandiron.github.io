@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+
+## You are a hot wife: you like to bend over for your man
+![Wet dream, doggy style](./wet-dream-doggy-style.jpg "Yes, bend over for your man, on your knees, and I'll slip my cock into your soaking pussy from behind and fuck you until daybreak.")  
+2022-12-12
+
 ## You are kind of an exhibitionist: you like to take it outside
 ![A tight space](./a-tight-space.jpg "I want to strip you nearly naked, and slide my cock into you from behind, with the wind blowing across your cute ass, and the sun warming us while I fuck you mercilessly and you scream out loud in pleasure.")  
 2022-12-11
