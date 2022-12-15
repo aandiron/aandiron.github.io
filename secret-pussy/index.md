@@ -8,6 +8,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ----------------------------------------
 
 
+## You are sentimental: you like your man to look down at you while he fucks you
+![Long hair dude on top, braided girl on bottom](./long-hair-on-top-braid-on-bottom.jpg "Spread your legs wde, and I'll slip my strong arm under you, and lift you against me so my cock slides all te way into you.")  
+2022-12-15
+
 ## You are a hot wife: you like to bend over for your man
 ![Wet dream, doggy style](./wet-dream-doggy-style.jpg "Yes, bend over for your man, on your knees, and I'll slip my cock into your soaking pussy from behind and fuck you until daybreak.")  
 2022-12-12
