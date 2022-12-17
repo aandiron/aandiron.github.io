@@ -20,6 +20,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $30 - You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.
 
+* [ ] $30 - **You're wearing a man's oversized buttondown shirt, and it's unbuttoned and open enough that I can see your pussy.**
+
 * [ ] $20 - You're wearing a soaking wet white t-shirt
 
 * [ ] $40 - You're wearing a soaking wet white t-shirt, and panties
