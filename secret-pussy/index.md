@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a hot wife: a dick slave semen bucket mother
+![What color leash?](./what-color-leash.jpg "On your knees in front of me, I'll pull back on your leash so you can move forward, and ram my cock up into you until I cum. I want to cum in you over and over again -- until I get you pregnant again. I want to breed you milf.")  
+2022-12-18
 
 ## You are sentimental: you like your man to look down at you while he fucks you
 ![Long hair dude on top, braided girl on bottom](./long-hair-on-top-braid-on-bottom.jpg "Spread your legs wde, and I'll slip my strong arm under you, and lift you against me so my cock slides all te way into you.")  
