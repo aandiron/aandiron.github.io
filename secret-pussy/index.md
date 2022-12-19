@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you like it if someone is watching you
+![Watch you get fucked on a computer](.watch-you-get-fucked-on-the-computer.jpg "I'll lean back and stroke my cock while watching you get fucked on cam. I want to stroke my cum all over my stomach, imaginging that it's my dick going in and out of you.")  
+2022-12-19
+
 ## You are a hot wife: a dick slave semen bucket mother
 ![What color leash?](./what-color-leash.jpg "On your knees in front of me, I'll pull back on your leash so you can move forward, and ram my cock up into you until I cum. I want to cum in you over and over again -- until I get you pregnant again. I want to breed you milf.")  
 2022-12-18
