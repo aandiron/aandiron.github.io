@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ----------------------------------------
 
 ## You are kind of an exhibitionist: you like it if someone is watching you
-![Watch you get fucked on a computer](.watch-you-get-fucked-on-the-computer.jpg "I'll lean back and stroke my cock while watching you get fucked on cam. I want to stroke my cum all over my stomach, imaginging that it's my dick going in and out of you.")  
+![Watch you get fucked on a computer](./watch-you-get-fucked-on-the-computer.jpg "I'll lean back and stroke my cock while watching you get fucked on cam. I want to stroke my cum all over my stomach, imaginging that it's my dick going in and out of you.")  
 2022-12-19
 
 ## You are a hot wife: a dick slave semen bucket mother
