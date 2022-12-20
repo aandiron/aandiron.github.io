@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a fantasy: ho. ho. ho.
+![Santa ride](./santa-ride.jpg "Merry xmas bitch. I want to lower you onto my candy cane and melt away inside you cuz you're such a hot fuckin' ho.")  
+2022-12-20
+
 ## You are kind of an exhibitionist: you like it if someone is watching you
 ![Watch you get fucked on a computer](./watch-you-get-fucked-on-the-computer.jpg "I'll lean back and stroke my cock while watching you get fucked on cam. I want to stroke my cum all over my stomach, imaginging that it's my dick going in and out of you.")  
 2022-12-19
