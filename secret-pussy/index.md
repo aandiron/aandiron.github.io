@@ -8,6 +8,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 ----------------------------------------
 
 ## You are a fantasy: ho. ho. ho.
+![Santa ride 2](./LilBoots-santa-ride.jpg "Spread your legs wide, ho ho ho. Let yourself down on the big man. He's going to fill your sweet pussy up with sticky sugarplum")  
+2022-12-21
+
+## You are a fantasy: ho. ho. ho.
 ![Santa ride](./santa-ride.jpg "Merry xmas bitch. I want to lower you onto my candy cane and melt away inside you cuz you're such a hot fuckin' ho.")  
 2022-12-20
 
