@@ -7,7 +7,7 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
-## You are a fantasy: ho. ho. ho.
+## You are a fantasy: let the magic of Christmas take you
 ![Santa ride 2](./LilBoots-santa-ride.jpg "Spread your legs wide, ho ho ho. Let yourself down on the big man. He's going to fill your sweet pussy up with sticky sugarplum")  
 2022-12-21
 
