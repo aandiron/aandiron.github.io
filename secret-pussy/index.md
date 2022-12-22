@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You are a rider: Hail Santa!
+![Hail Santa](./hail-santa.jpg "All I'm going to be thinking about on Christmas Eve is how I want your wet pussy slipping down my hard dick. Fuck me for Christmas woman! And I'll have everything on my list. And if you want to do Santa first, sure I'll take sloppy seconds.")  
+2022-12-22
+
 ## You are a fantasy: let the magic of Christmas take you
 ![Santa ride 2](./LilBoots-santa-ride.jpg "Spread your legs wide, ho ho ho. Let yourself down on the big man. He's going to fill your sweet pussy up with sticky sugarplum")  
 2022-12-21
