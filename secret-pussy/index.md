@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories. 
 
 ----------------------------------------
 
+## You like it a little rough: even on Christmas
+![Tentacle Christmas](./tentacle-christmas.jpg "Feel your body entangled, constricted. Every moveable part you have held down, and your pussy penetrated and ravaged until you cum helplessly.")  
+2022-12-23
+
 ## You are a rider: Hail Santa!
 ![Hail Santa](./hail-santa.jpg "All I'm going to be thinking about on Christmas Eve is how I want your wet pussy slipping down my hard dick. Fuck me for Christmas woman! And I'll have everything on my list. And if you want to do Santa first, sure I'll take sloppy seconds.")  
 2022-12-22
