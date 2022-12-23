@@ -2,8 +2,8 @@
 layout: default
 ---
 
-# Secret Pussy -- A Specially Curated Collection For One Special Person
-A not-for-public-consumption collection to generate inspiration for my stories. Just for *you* -- you know who you are.
+# Secret Pussy -- A Specially Curated Collection
+A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
