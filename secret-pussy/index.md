@@ -7,8 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You're a nice respectable lady: until the right man gets up under your skirts
+![Costume drama bang](./costume-drama-bang-1.jpg "Hold on tight while I pull your skirts up and spread your legs. I'm going to fuck you so hard up against this wall, until you cum wet and soaking all over my cock.")  
+2022-12-28
+
 ## You like it a little rough: bend over and take what's cumming
-![Bend over in the shower](./22.1220sophie.jpg "I'll soap my throbbing cock up good befoe I bend you over and slide it up your ass. ANd I fuck you like that till you feel my cum filling you, filling you, filling you -- until you feel absolutely stuffed from behind..")  
+![Bend over in the shower](./22.1220sophie.jpg "I'll soap my throbbing cock up good befoe I bend you over and slide it up your ass. ANd I fuck you like that till you feel my cum filling you, filling you, filling you -- until you feel absolutely stuffed from behind.")  
 2022-12-27
 
 ## You like it a little rough: even on Christmas
