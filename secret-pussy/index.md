@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You're a nice respectable lady: until you get the right man's cock in your mouth
+![Costume drama blow](./costume-drama-blow-1.jpg "Slide your beautiful lips up and down my cock. See how hard you make me? Only you can do that you beautiful little whore.")  
+2022-12-28
+
 ## You're a nice respectable lady: until the right man gets up under your skirts
 ![Costume drama bang](./costume-drama-bang-1.jpg "Hold on tight while I pull your skirts up and spread your legs. I'm going to fuck you so hard up against this wall, until you cum wet and soaking all over my cock.")  
 2022-12-28
