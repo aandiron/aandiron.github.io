@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are sentimental: you like it when a man reads to you
+![Are you enjoying yourself?](./are-you-enjoying-yourself.jpg "I'll lay you out naked in front of me, bound so you can't move. And I'll read you hot descriptions of all the fucking I want to do to you, but not touch you or let you touch yourself. I want to make your cunt drip.")  
+2022-12-29
+
 ## You're a nice respectable lady: until you get the right man's cock in your mouth
 ![Costume drama blow](./costume-drama-blow-1.jpg "Slide your beautiful lips up and down my cock. See how hard you make me? Only you can do that you beautiful little whore.")  
 2022-12-28
