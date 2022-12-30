@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a fantasy: [what color are your panties?](../unpublished/what-color-are-your-panties)
+![Whenever you want](./do-this-for-you-whenever-you-want.jpg "Sit on my cock. You make me so hard. You make me cum so quickly. Do what I ask of you, whenever I want, even if it's slipping your wet cunt down my cock and taking it all in to the balls.")  
+2022-12-30
+
 ## You are sentimental: you like it when a man reads to you
 ![Are you enjoying yourself?](./are-you-enjoying-yourself.jpg "I'll lay you out naked in front of me, bound so you can't move. And I'll read you hot descriptions of all the fucking I want to do to you, but not touch you or let you touch yourself. I want to make your cunt drip.")  
 2022-12-29
