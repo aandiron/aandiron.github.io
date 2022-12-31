@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a fantasy: enticed by blue monsters
+![Blue orc fantasy](./blue-orc-fantasy.jpg "I want to watch you get fucked by a monster, pounded from behind until he leaves you soaking wet and full of cum, but he's not done yet, so you crawl on your knees to him and suck his monster blue cock.")  
+2022-12-31
+
 ## You are a fantasy: [what color are your panties?](../unpublished/what-color-are-your-panties)
 ![Whenever you want](./do-this-for-you-whenever-you-want.jpg "Sit on my cock. You make me so hard. You make me cum so quickly. Do what I ask of you, whenever I want, even if it's slipping your wet cunt down my cock and taking it all in to the balls.")  
 2022-12-30
