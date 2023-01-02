@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: my resolution is to bang you before the end of this year
+![End the year with a bang](./hny2023.jpg "I vow right here and now to fuck you this year. And I'm going to fuck you somewhere where other people might see or hear us. I want the public to know how much I love fucking you when it finall happens.")  
+2023-1-2
+
 ## You are a fantasy: enticed by blue monsters
 ![Blue orc fantasy](./blue-orc-fantasy.jpg "I want to watch you get fucked by a monster, pounded from behind until he leaves you soaking wet and full of cum, but he's not done yet, so you crawl on your knees to him and suck his monster blue cock.")  
 2022-12-31
