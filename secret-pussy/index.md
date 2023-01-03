@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a whore in the bedroom: hotter than any other woman in bed, and you know it
+![A whole hour late already](./a-whole-hour-late-already.jpg "Make me yours by making me cum inside you, over and over again. I want you to own my throbbing cock forever you hot bedroom whore.")  
+2023-01-03
+
 ## You are kind of an exhibitionist: my resolution is to bang you before the end of this year
 ![End the year with a bang](./hny2023.jpg "I vow right here and now to fuck you this year. And I'm going to fuck you somewhere where other people might see or hear us. I want the public to know how much I love fucking you when it finall happens.")  
 2023-1-2
@@ -72,7 +76,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 2022-12-11
 
 ## You are a whore in the bedroom: the men want to give it all to you
-![You love her while you give it all to me](./you-love-her-while-you-give-it-all-to-me.jpg "I want to yive you all my cum on the daily. Every day I want you to bend over in front of me, and let me watch your cute round ass while I slide my cock into you, until I fill you with hot jizz and it drips from your soaking cunt.")  
+![You love her while you give it all to me](./you-love-her-while-you-give-it-all-to-me.jpg "I want to give you all my cum on the daily. Every day I want you to bend over in front of me, and let me watch your cute round ass while I slide my cock into you, until I fill you with hot jizz and it drips from your soaking cunt.")  
 2022-12-10
 
 ## You are a rider: regular cowgirl is good too
