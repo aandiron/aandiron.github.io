@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little rough: even upside down
+![Suck it upside down](./suck-it-upside-down.jpg "I'll tie you up and leave you laying helpless on the table. And I'll pull your head back and slide my stiff cock down your throat upside down. Gag. I _want_ you to gag on it. Choke it and hold it, you hot fucking bitch.")  
+2023-01-05
+
 ## You are a whore in the bedroom: hotter than any other woman in bed, and you know it
 ![A whole hour late already](./a-whole-hour-late-already.jpg "Make me yours by making me cum inside you, over and over again. I want you to own my throbbing cock forever you hot bedroom whore.")  
 2023-01-03
