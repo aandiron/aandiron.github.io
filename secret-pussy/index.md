@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 ## You are kind of an exhibitionist: especially if a big man will take you outside
-![The Woodsman](./woodsman.jpg "I want to walk you into the woods, hold you down, strip your clothes off, and pound your hot little cunt from behind while you scream out how much you love it so that your pleasure echoes from the hills.")  
+![The Huntsman](./huntsman.jpg "I want to walk you into the woods, hold you down, strip your clothes off, and pound your hot little cunt from behind while you scream out how much you love it so that your pleasure echoes from the hills.")  
 2023-01-06
 
 ## You like it a little rough: even upside down
