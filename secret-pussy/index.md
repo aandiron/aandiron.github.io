@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a princess: want to go for a ride?
+![Naked Elsa with water horse](./elsa-water-horse.jpg "In my head, you'll always be a hot, naked, blonde princess. I want you to ride my royal cock all night.")  
+2022-01-07
+
 ## You are kind of an exhibitionist: especially if a big man will take you outside
 ![The Huntsman](./huntsman.jpg "I want to walk you into the woods, hold you down, strip your clothes off, and pound your hot little cunt from behind while you scream out how much you love it so that your pleasure echoes from the hills.")  
 2023-01-06
