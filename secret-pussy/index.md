@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a fantasy: green-on-green
+![Green orc fuck](./green-lady-orc-fuck.jpg "I want to slide my destroying orc-cock into you. I want to hold you above my cock and slide you up and down it like a tiny wet fucktoy.")  
+2022-01-08
+
 ## You are a princess: want to go for a ride?
 ![Naked Elsa with water horse](./elsa-water-horse.jpg "In my head, you'll always be a hot, naked, blonde princess. I want you to ride my royal cock all night.")  
 2022-01-07
