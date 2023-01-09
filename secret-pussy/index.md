@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: hot sticky creamsicle
+![Yes Cum on my Face 4](./yes-cum-on-my-face-4.jpg "Suck my dick, and when I'm about to cum pull your head back and look up at me. Smile. Then let me cover your cute face in cum.")  
+2022-01-09
+
 ## You are a fantasy: green-on-green
 ![Green orc fuck](./green-lady-orc-fuck.jpg "I want to slide my destroying orc-cock into you. I want to hold you above my cock and slide you up and down it like a tiny wet fucktoy.")  
 2022-01-08
