@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: lap it up
+![Yes Cum on my Face 5](./yes-cum-on-my-face-5.jpg "Lean your head back. Let me see those beautiful lips, that lovely neck. I'm going to drop my cum all over your lips and chin. Let it run hot down your neck. Lick your lips and taste it and tell me how much you love it you hot slut.")  
+2022-01-10
+
 ## You like it a little gross: hot sticky creamsicle
 ![Yes Cum on my Face 4](./yes-cum-on-my-face-4.jpg "Suck my dick, and when I'm about to cum pull your head back and look up at me. Smile. Then let me cover your cute face in cum.")  
 2022-01-09
