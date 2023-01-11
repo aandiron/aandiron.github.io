@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## You are a tiny fairy: all turned on and aglow
+![Fairy light](./fairy-light.jpg "I'll bind you up, and shove my big radiant light up your hot cunt!")  
+2022-01-11
+
 ## You like it a little gross: lap it up
 ![Yes Cum on my Face 5](./yes-cum-on-my-face-5.jpg "Lean your head back. Let me see those beautiful lips, that lovely neck. I'm going to drop my cum all over your lips and chin. Let it run hot down your neck. Lick your lips and taste it and tell me how much you love it you hot slut.")  
 2022-01-10
