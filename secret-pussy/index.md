@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: just work on the tip
+![Yes Cum on my Face 6](./yes-cum-on-my-face-6.jpg "Put your glasses on. Hold my throbbing cock in your little hand and touch your lips to the tip. Taste my cum rising, and love it you hot little bitch.")  
+2022-01-12
 
 ## You are a tiny fairy: all turned on and aglow
 ![Fairy light](./fairy-light.jpg "I'll bind you up, and shove my big radiant light up your hot cunt!")  
