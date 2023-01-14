@@ -4,8 +4,6 @@ layout: default
 
 ## Hail to the Cheats
 
---------------------
-
 ![guilty-face-of-a-cheating-wife.png](./guilty-face-of-a-cheating-wife.png)
 
 --------------------
@@ -50,9 +48,10 @@ layout: default
 
 --------------------
 
-* And then you tell him you are going back to your regular life. And this is never happening again. But you'll never forget it. And every once in a while, when you are alone and tired and falling asleep, you think back on those couple of days in that hotel, and touch yourself, and make yourself cum thinking of him. You'll always have that memory, of that night when you did like the other Leonard Cohen lyric:   
+* And then you tell him you are going back to your regular life. And this is never happening again. But you'll never forget it. And every once in a while, when you are alone and tired and falling asleep, you think back on those couple of days in that hotel, and touch yourself, and make yourself cum thinking of him. You'll always have that memory, of that miraculous night when you did like the other Leonard Cohen lyric:   
 * _Yeah let's do something crazy,_  
-* Something absolutely wrong_  
+* _Something absolutely wrong_  
+* _While we're waiting for the miracle_
 
 
 
