@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: splish, splash on your glasses
+![Yes Cum on my Face 7](./yes-cum-on-my-face-7.jpg "I'll pull my dick from your lips just before I cum, and slide it between your beautiful tits. And just the touch of your tits will make me orgasm. My hot sticky jizz squirting all over your beautiful face, gumming up your glasses and clouding your vision.")  
+2022-01-14
+
 ## You like it a little gross: just work on the tip
 ![Yes Cum on my Face 6](./yes-cum-on-my-face-6.jpg "Put your glasses on. Hold my throbbing cock in your little hand and touch your lips to the tip. Taste my cum rising, and love it you hot little bitch.")  
 2022-01-12
