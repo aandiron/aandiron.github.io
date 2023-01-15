@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: you look hot in athleisure. And on your knees.
+![Yes Cum on my Face 8](./yes-cum-on-my-face-8.jpg "Put on your sports bra and your high socks. Get on your knees and take the tip my cock between your lips. Suck it into your mouth and look up at me. And when you make me cum it will be all over your pretty little face.")  
+2022-01-15
+
 ## You like it a little gross: splish, splash on your glasses
 ![Yes Cum on my Face 7](./yes-cum-on-my-face-7.jpg "I'll pull my dick from your lips just before I cum, and slide it between your beautiful tits. And just the touch of your tits will make me orgasm. My hot sticky jizz squirting all over your beautiful face, gumming up your glasses and clouding your vision.")  
 2022-01-14
