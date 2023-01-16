@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a whore in the bedroom: get the glasses banged off your face
+![Do you 3 ways](./22.0910millie.jpg "I want to bind you and fuck you 3 ways. Slide my cock between your lips until it's all wet. The mount you up on it, and I'll slide your wet little cunt up and down on it. And then I'll fuck your glasses off from behind. Get on your knees you hot little mommy.")  
+2022-01-16
+
 ## You like it a little gross: you look hot in athleisure. And on your knees.
 ![Yes Cum on my Face 8](./yes-cum-on-my-face-8.jpg "Put on your sports bra and your high socks. Get on your knees and take the tip my cock between your lips. Suck it into your mouth and look up at me. And when you make me cum it will be all over your pretty little face.")  
 2022-01-15
