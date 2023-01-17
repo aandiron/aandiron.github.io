@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a fantasy: and I'm the big bad wolf
+![Wolf at the pillory](./wolf-at-the-pillory.jpg "You're small, cold, frightened, and on your knees. I'm big, warm, furry, and terrifying. I sniff around you. You get wet with terror. I smell how wet and afraid you are. I mount you. And I bestially rape you like some fairy-tale monster.")  
+2022-01-17
+
 ## You are a whore in the bedroom: get the glasses banged off your face
 ![Do you 3 ways](./22.0910millie.jpg "I want to bind you and fuck you 3 ways. Slide my cock between your lips until it's all wet. The mount you up on it, and I'll slide your wet little cunt up and down on it. And then I'll fuck your glasses off from behind. Get on your knees you hot little mommy.")  
 2022-01-16
