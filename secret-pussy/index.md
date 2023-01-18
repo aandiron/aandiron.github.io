@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little rough: get a little taste of your man
+![Torso bites](./torso-bites.jpg "Lay me out, get up on me and slide your cunt down my cock. And lay your teeth into me you viscious little monster.")  
+2023-01-18
+
 ## You are a fantasy: and I'm the big bad wolf
 ![Wolf at the pillory](./wolf-at-the-pillory.jpg "You're small, cold, frightened, and on your knees. I'm big, warm, furry, and terrifying. I sniff around you. You get wet with terror. I smell how wet and afraid you are. I mount you. And I bestially rape you like some fairy-tale monster.")  
 2022-01-17
