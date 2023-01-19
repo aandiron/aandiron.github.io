@@ -26,7 +26,7 @@ layout: default
 
 --------------------
 
-* When you start to relax, and lean into me, you'll feel my cock already hard and straining to be in you.
+* When you start to relax, and press back against me, you'll feel my cock already hard and straining to be in you.
 
 --------------------
 
@@ -38,11 +38,11 @@ layout: default
 
 --------------------
 
-* I'll fuck you like that in your car, you riding up and down my shaft, my fingers on your clit. I'll fuck you so hard you'll cum over and over again all over my cock.
+* I'll fuck you like that in your car, you riding up and down my shaft, my fingers on your clit. I'll fuck you so hard you'll cum over and over again on my cock. And I'll hold back as long as I can, but eventually I'll won't be able to control myself and I'll fill your hot pussy with my cum.
 
 --------------------
 
-* And when I'm done with you, and you're just done, I'll leave you there without a word. A one-time secret lover out of nowhere.
+* And when I'm done with you, and you're just done, I'll slip away and leave you there without a word. A one-time secret lover out of nowhere.
 
 --------------------
 
@@ -50,7 +50,7 @@ layout: default
 
 --------------------
 
-* And you're birthday is coming up... this might be a good idea for a present!
+* And you're birthday is coming up... I've got an idea for a present now.
 
 --------------------
 
