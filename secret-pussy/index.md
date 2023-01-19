@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 ## You are a fantasy: a slave girl in a metal bikini
-![Leia and Jabba](./Leia--jabba.jpg "I'll bind you in chains and have my henchmen hold you down while I shove my hard cock down your throat. Even when I become a morbidly obese crime boss, you're going to still love sucking my cock because you are just that much of a little slut.")  
+![Leia and Jabba](./Leia--jabba.jpeg "I'll bind you in chains and have my henchmen hold you down while I shove my hard cock down your throat. Even when I become a morbidly obese crime boss, you're going to still love sucking my cock because you are just that much of a little slut.")  
 2022-01-18
 
 ## You like it a little rough: get a little taste of your man
