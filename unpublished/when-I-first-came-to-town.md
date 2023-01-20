@@ -50,8 +50,5 @@ layout: default
 
 --------------------
 
-* And you're birthday is coming up... I've got an idea for a present now.
-
---------------------
 
 
