@@ -14,7 +14,7 @@
 	* tooltip should be super dirty 
 * Add 2 spaces at the end of the image for a carriage return
 * Add a date after the image
-* Add two spaces before the next entry
+* Add two blank lines before the next entry
 
 Here's an example entry
 
