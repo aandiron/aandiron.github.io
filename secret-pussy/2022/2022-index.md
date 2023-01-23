@@ -4,6 +4,8 @@ layout: default
 
 ### [Newer posts](../index.md)
 
+----------------------------------------
+
 ## You are a fantasy: enticed by blue monsters
 ![Blue orc fantasy](./blue-orc-fantasy.jpg "I want to watch you get fucked by a monster, pounded from behind until he leaves you soaking wet and full of cum, but he's not done yet, so you crawl on your knees to him and suck his monster blue cock.")  
 2022-12-31
