@@ -91,11 +91,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ![End the year with a bang](./hny2023.jpg "I vow right here and now to fuck you this year. And I'm going to fuck you somewhere where other people might see or hear us. I want the public to know how much I love fucking you when it finall happens.")  
 2023-1-2
 
-* [2022 posts](./2022/2022-index.md)
+### [2022 posts](./2022/2022-index.md)
 
 ----------------------------------------
 
-* [Bonus: So Much Halloween-Themed Porn -- Who knew?](./halloween/index.md)
+### [Bonus: So Much Halloween-Themed Porn -- Who knew?](./halloween/index.md)
 
 
 
