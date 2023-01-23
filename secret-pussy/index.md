@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 ## You are a whore in the bedroom: long, black, over-the-elbow gloves look so hot on you
-![Jessie Running Low on Time](./I want to see you in gloves like that -- and nothing else. I want to see your cute ass framed by those gloves. I want to bend you over, grab your elbows where those gloves will give me extra grip, and pull you back hard onto my cock you hot little bedroom whore.")  
+![Jessie Running Low on Time](./jessie-running-low-on-time.jpg "I want to see you in gloves like that -- and nothing else. I want to see your cute ass framed by those gloves. I want to bend you over, grab your elbows where those gloves will give me extra grip, and pull you back hard onto my cock you hot little bedroom whore.")  
 2022-01-23
 
 
