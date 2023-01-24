@@ -2,7 +2,7 @@
 layout: default
 ---
 
-# Unseen Horror (draft: 2021-01-18)
+## Unseen Horror (draft: 2021-01-18)
 
 
 It began with Angel, small and brave.

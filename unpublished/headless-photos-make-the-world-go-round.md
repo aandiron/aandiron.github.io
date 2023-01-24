@@ -3,7 +3,7 @@ layout: default
 ---
 
 
-# Headless Photos Make the World Go 'Round
+## Headless Photos Make the World Go 'Round
 
 
 I used to tell people that I believed good sex required some kind of

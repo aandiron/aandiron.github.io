@@ -3,7 +3,7 @@ layout: default
 ---
 
 
-# What I remember about you
+## What I remember about you
   
 ---The first memory I have of you is when I told you I might want to be a truck driver. You told me that some truck drivers get a boner that wouldn't go away, and had to be pierced with a needle to deflate them.
 
