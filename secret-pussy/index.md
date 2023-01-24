@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+hyperreal-squirting.jpg
+## You are a whore in the bedroom: you love it when a big man touches you the right way
+![Big man hands; small squirting girl](./hyperreal-squirting.jpg "Spread your legs for me. Lean back. Let my big hands roam over your small body. Let me touch your wet little pussy. Feel my strong fingers agaist your delicate clit. I'm going to touch you in ways you never experienced before. I'm going to make you cum so many times on my fingers that you're going to squirt everywhere.")  
+2022-01-24
+
+
 ## You are a whore in the bedroom: long, black, over-the-elbow gloves look so hot on you
 ![Jessie Running Low on Time](./jessie-running-low-on-time.jpg "I want to see you in gloves like that -- and nothing else. I want to see your cute ass framed by those gloves. I want to bend you over, grab your elbows where those gloves will give me extra grip, and pull you back hard onto my cock you hot little bedroom whore.")  
 2022-01-23
