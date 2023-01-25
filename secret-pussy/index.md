@@ -7,7 +7,13 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
-hyperreal-squirting.jpg
+
+## You are a fantasy: Adventure in the woods, and encounter the freaks of nature
+![Sonja and the Spriggan](./sonja-spriggan.jpg "You're so tough, but there's big, scary things deep in the woods. Things that are strong like ancient trees, hard like wood, and ready to take a tough girl like you and show you what the true nature of the woods is. They'll grip you and hold you in place out under the forest canopy while they take your pussy standing from behind. You screams for help or for pleasure will be heard by no one..")  
+[Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)  
+2022-01-25
+
+
 ## You are a whore in the bedroom: you love it when a big man touches you the right way
 ![Big man hands; small squirting girl](./hyperreal-squirting.jpg "Spread your legs for me. Lean back. Let my big hands roam over your small body. Let me touch your wet little pussy. Feel my strong fingers agaist your delicate clit. I'm going to touch you in ways you never experienced before. I'm going to make you cum so many times on my fingers that you're going to squirt everywhere.")  
 2022-01-24
