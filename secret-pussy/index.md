@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## You are kind of an exhibitionist: don't get caught multi-tasking!
+![You're going to get me fired](./youre-going-to-get-me-fired.jpg "Let me get under your desk, on my knees, while you work. I'll spread your legs and slide my tongue up against your pussy. I'll taste your sweet wetness, and lick that hot little clit of yours until you are soaking. Then I'll stick a finger or two up inside your cunt, and finger fuck you while I suck your clit. I dare you not to cum out loud.")  
+2023-01-26
+
+
 ## You are a fantasy: Adventure in the woods, and encounter the freaks of nature
 ![Sonja and the Spriggan](./sonja-spriggan.jpg "You're so tough, but there's big, scary things deep in the woods. Things that are strong like ancient trees, hard like wood, and ready to take a tough girl like you and show you what the true nature of the woods is. They'll grip you and hold you in place out under the forest canopy while they take your pussy standing from behind. You screams for help or for pleasure will be heard by no one..")  
 [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)  
