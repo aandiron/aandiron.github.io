@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little rough: a man knows how to train you properly
+![Pull the leash through](./pull-the-leash-through.jpg "My little pet, I'll pull your leash and you'll feel the leather slip along against your pussy and your head is forced backward making you feel exposed and vulerable. Take my cock in your hand and feel how hard you make me. I'll hold you in position and admire your beauty while you stroke my cock until I cum for you.")  
+2023-01-27
+
 
 ## You are kind of an exhibitionist: don't get caught multi-tasking!
 ![You're going to get me fired](./youre-going-to-get-me-fired.jpg "Let me get under your desk, on my knees, while you work. I'll spread your legs and slide my tongue up against your pussy. I'll taste your sweet wetness, and lick that hot little clit of yours until you are soaking. Then I'll stick a finger or two up inside your cunt, and finger fuck you while I suck your clit. I dare you not to cum out loud.")  
