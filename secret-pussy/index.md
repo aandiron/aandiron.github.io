@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a fantasy: make it a double
+![Two elves](./2-elves.jpg "Spread your legs wide and make my raging cock a sandwich between your pussy and your hot friend's ass. Remember when you joked about a threesome with me and your hot friend? Even a joke about it triggered such lust in me. The thought of you alone is enough to make me cum. Imagine then endless pleasures of you plus a bonus ass at the same time!")  
+2023-01-29
+
+
 ## You like it a little rough: a man knows how to train you properly
 ![Pull the leash through](./pull-the-leash-through.jpg "My little pet, I'll pull your leash and you'll feel the leather slip along against your pussy and your head is forced backward making you feel exposed and vulerable. Take my cock in your hand and feel how hard you make me. I'll hold you in position and admire your beauty while you stroke my cock until I cum for you.")  
 2023-01-27
@@ -18,7 +23,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 
 ## You are a fantasy: Adventure in the woods, and encounter the freaks of nature
-![Sonja and the Spriggan](./sonja-spriggan.jpg "You're so tough, but there's big, scary things deep in the woods. Things that are strong like ancient trees, hard like wood, and ready to take a tough girl like you and show you what the true nature of the woods is. They'll grip you and hold you in place out under the forest canopy while they take your pussy standing from behind. You screams for help or for pleasure will be heard by no one..")  
+![Sonja and the Spriggan](./sonja-spriggan.jpg "You're so tough, but there's big, scary things deep in the woods. Things that are strong like ancient trees, hard like wood, and ready to take a tough girl like you and show you what the true nature of the woods is. They'll grip you and hold you in place out under the forest canopy while they take your pussy standing from behind. You screams for help or for pleasure will be heard by no one.")  
 [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)  
 2022-01-25
 
