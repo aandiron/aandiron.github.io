@@ -7,6 +7,13 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+
+## You sometimes like to be used: line the men up and let them have at you!
+![Line the men up](./23.0106abby.jpg "Think about what it would be like to be tied up, your arms restrained, your mouth gagged, and someone bends you over a desk. And then a whole string of powerful men fuck your tight little cunt from behind, filling you with one jizz-load after another until cum is dripping from your cunt and the splooge from one dude is just lubricating you for the next.")  
+2023-01-30
+
+
 ## You are a fantasy: make it a double
 ![Two elves](./2-elves.jpg "Spread your legs wide and make my raging cock a sandwich between your pussy and your hot friend's ass. Remember when you joked about a threesome with me and your hot friend? Even a joke about it triggered such lust in me. The thought of you alone is enough to make me cum. Imagine then endless pleasures of you plus a bonus ass at the same time!")  
 2023-01-29
