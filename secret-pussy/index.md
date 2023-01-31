@@ -8,6 +8,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## You're a nice respectable lady: polite men should ask permission of you first
+![Can I cum inside](./tifa-can-I-cum-inside.jpg "I want to hold myself on edge with my cock inside your wet pussy, skin on skin, barely hanging on until you give me permission to cum inside you.")  
+2023-01-31
+
 
 ## You sometimes like to be used: line the men up and let them have at you!
 ![Line the men up](./23.0106abby.jpg "Think about what it would be like to be tied up, your arms restrained, your mouth gagged, and someone bends you over a desk. And then a whole string of powerful men fuck your tight little cunt from behind, filling you with one jizz-load after another until cum is dripping from your cunt and the splooge from one dude is just lubricating you for the next.")  
