@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it with some horror: but how much can you take?
+![Wrestling with demons](./wrestling-with-demons.jpg "I want to slide my massive demon-dick up inside you. Split you wide open, and then pull out just as I cum and spray my cum all hot and sticky all over your tiny demon cunt.")  
+2023-02-01
+
 
 ## You're a nice respectable lady: polite men should ask permission of you first
 ![Can I cum inside](./tifa-can-I-cum-inside.jpg "I want to hold myself on edge with my cock inside your wet pussy, skin on skin, barely hanging on until you give me permission to cum inside you.")  
