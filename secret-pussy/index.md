@@ -7,7 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
-## You like it with some horror: but how much can you take?
+## You're excitable: when the right man says the right things to you.
+![Dripping wet for you](./dripping-wet-for-you.jpg "I want to make you so wet you bend over naked in front of me and show me your dripping cunt. I want you to beg me to put my throbbing cock inside you.")  
+2023-02-02
+
+
+## You like it with some horror: wrestling with some demons
 ![Wrestling with demons](./wrestling-with-demons.jpg "I want to slide my massive demon-dick up inside you. Split you wide open, and then pull out just as I cum and spray my cum all hot and sticky all over your tiny demon cunt.")  
 2023-02-01
 
