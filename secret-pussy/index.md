@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: you know how to get paid under the table
+![Rollergirl under the table](./rollergirl-undertable-bj.jpg "Slide under that table on your knees. Fold your legs, and bury your pretty face in my warm crotch. Feel my hand on the back of your head, pulling you in. Wrap your lips around my cock and let it slide deeply into your mouth. I love looking down and seeing your pretty lips circled around my shaft!")  
+2023-02-03
+
+
 ## You're excitable: when the right man says the right things to you.
 ![Dripping wet for you](./dripping-wet-for-you.jpg "I want to make you so wet you bend over naked in front of me and show me your dripping cunt. I want you to beg me to put my throbbing cock inside you.")  
 2023-02-02
