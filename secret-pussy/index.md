@@ -7,9 +7,13 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You sometimes like to be used: on a leash
+![On a leash in boots](./23.0203sophie.jpg "I want you following behind me, pulled along on a leash, naked under a coat that you can't close. The breeze keeps blowing it open, and other people catch a glimpse of your hot body, and some of them are jealous that I have you on my leash. And where am I leading you? To a place where I can keep you under control while I fuck the shit out of you.")  
+2023-02-05
+
 
 ## You sometimes like to be used: while wearing nothing but shoes
-![Nothing but shoes](./23.0104maisey.jpg "I want you strapped down to a chair with you legs spread wide. I want to watch you squirm for a while, naked with nothing but shoes on, wondering what I'm going to to do to you. At first I'll just stroke off, watching your naked writhing hotness, until I'm on the edge of cumming. And then I'll bring myself to edge again. And when I'm sure I have a huge load of cum pent up, I'll stick my cock in your cunt and cum inside you so much that it will seep out of your pussy and run down over your ass onto the chair..")  
+![Nothing but shoes](./23.0104maisey.jpg "I want you strapped down to a chair with you legs spread wide. I want to watch you squirm for a while, naked with nothing but shoes on, wondering what I'm going to to do to you. At first I'll just stroke off, watching your naked writhing hotness, until I'm on the edge of cumming. And then I'll bring myself to edge again. And when I'm sure I have a huge load of cum pent up, I'll stick my cock in your cunt and cum inside you so much that it will seep out of your pussy and run down over your ass onto the chair.")  
 2023-02-04
 
 
