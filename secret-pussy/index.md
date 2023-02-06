@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## You have magic: and you know how to handle your familiar
+![Uhhh meow](./uhhh-meow.jpg "Tell me what you want from me, and it will make my dick hard. Put me on a leash and I'll do anything for you.")  
+2023-02-06
+
+
 ## You sometimes like to be used: on a leash
 ![On a leash in boots](./23.0203sophie.jpg "I want you following behind me, pulled along on a leash, naked under a coat that you can't close. The breeze keeps blowing it open, and other people catch a glimpse of your hot body, and some of them are jealous that I have you on my leash. And where am I leading you? To a place where I can keep you under control while I fuck the shit out of you.")  
 2023-02-05
