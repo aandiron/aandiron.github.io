@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little rough: especially if it's also romantic at the same time
+![Belt around the neck](./belt-neck-bw.jpg "On your knees. Feel the leather of my belt tightening around your neck. Pulling you up, towards me, towards my mouth. I kiss you, wetly, and long. And from that kiss, and the grip on your neck, and how it's getting a little harder to breath, and how the warmth is flooding into your face, from all this you know you are about to be fucked to pieces.")  
+2023-02-08
 
 ## You have magic: and you know how to handle your familiar
 ![Uhhh meow](./uhhh-meow.jpg "Tell me what you want from me, and it will make my dick hard. Put me on a leash and I'll do anything for you.")  
