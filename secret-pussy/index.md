@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You sometimes like to be used: hanging from the rafters
+![Hanging from the rafters](./23.0212abbytammy.jpg "I'll pay someone to rig you up for me. Bind you hand and foot, blindfold you, suspend you from the ceiling, barely dressed. And then I'll pay more to have my time with you. While you're hanging there wondering, I'll come up behind you, life your skirt, grab your hips, and pull you down on my throbbing shaft. I'll fuck you until you are swinging like a pendulum.")  
+2023-02-13
 
 ## You are a whore in the bedroom: so let's get you into the bedroom
 ![Tear you apart](./tear-you-apart.jpg "I want you wearing something hot and skimpy. Press your ass up against me. Feel how hard you make my cock. I want to slide my hand up between your legs, feel how warm and wet you are because you can't stop thinking about me fucking you. I want to hold you right there, waiting in anticipation, while I tell you how badly I want to fuck your hotness.")  
