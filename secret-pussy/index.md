@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## You are a whore in the bedroom: but you know you need to name your price
+![Valentine for a price](./valentine-for-a-price.jpg "Take my money you hot whore. Hold it in your hand while I slide my big cock into your sopping pussy and watch your pretty tits bounce up and down as I pound my money out of you.")  
+2023-02-14
+
+
 ## You sometimes like to be used: hanging from the rafters
 ![Hanging from the rafters](./23.0212abbytammy.jpg "I'll pay someone to rig you up for me. Bind you hand and foot, blindfold you, suspend you from the ceiling, barely dressed. And then I'll pay more to have my time with you. While you're hanging there wondering, I'll come up behind you, life your skirt, grab your hips, and pull you down on my throbbing shaft. I'll fuck you until you are swinging like a pendulum.")  
 2023-02-13
