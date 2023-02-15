@@ -7,6 +7,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little gross: especially if it's your birthday
+![Birthday bukake](./birthday-bukake.jpg "I want to pay to watch you take all the dick you can handle, and have cum raining down hot and stick all over your beautiful body to celebrate your birthday.")  
+2023-02-15
+
 
 ## You are a whore in the bedroom: [but you know you need to name your price](https://aandiron.github.io/unpublished/whore-challenge)
 ![Valentine for a price](./valentine-for-a-price.jpg "Take my money you hot whore. Hold it in your hand while I slide my big cock into your sopping pussy and watch your pretty tits bounce up and down as I pound my money out of you.")  
