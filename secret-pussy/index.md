@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
-## You are a whore in the bedroom: but you know you need to name your price
+## You are a whore in the bedroom: [but you know you need to name your price](https://aandiron.github.io/unpublished/whore-challenge)
 ![Valentine for a price](./valentine-for-a-price.jpg "Take my money you hot whore. Hold it in your hand while I slide my big cock into your sopping pussy and watch your pretty tits bounce up and down as I pound my money out of you.")  
 2023-02-14
 
