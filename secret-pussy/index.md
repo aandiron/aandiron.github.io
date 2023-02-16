@@ -7,7 +7,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
-## You like it a little gross: especially if it's your birthday
+## You like it a little gross: [especially if it's your birthday](https://www.literotica.com/s/its-your-birthday-1)
 ![Birthday bukake](./birthday-bukake.jpg "I want to pay to watch you take all the dick you can handle, and have cum raining down hot and stick all over your beautiful body to celebrate your birthday.")  
 2023-02-15
 
