@@ -10,7 +10,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ## You have magic: you can make the experience last and last
 ![How long will this potion last](./how-long-will-this-potion-last.jpg "I want to slide my hard cock into you from behind and then just be in your pussy. And fuck you and fuck you and fuck you. I want to be in your pussy forever.")  
-2023-02-17
+2023-02-17  
 
 
 ## You like it a little gross: [especially if it's your birthday](https://www.literotica.com/s/its-your-birthday-1)
