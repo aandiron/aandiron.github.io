@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## You are a goddess: men worship you on their knees
+![Between purple stockings](./between-purple-stockings.jpg "I want to bury my face in your sweet overflowing pussy, feel your thighs on either side of my head, and make you cum with my tongue gently on your senstive clit, and my fingers fucking your pussy mercilessly..")  
+2023-02-19
+
+
 ## You have magic: you can make the experience last and last
 ![How long will this potion last](./how-long-will-this-potion-last.jpg "I want to slide my hard cock into you from behind and then just be in your pussy. And fuck you and fuck you and fuck you. I want to be in your pussy forever.")  
 2023-02-17
