@@ -9,7 +9,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 
 ## You are a goddess: men worship you on their knees
-![Between purple stockings](./between-purple-stockings.jpg "I want to bury my face in your sweet overflowing pussy, feel your thighs on either side of my head, and make you cum with my tongue gently on your senstive clit, and my fingers fucking your pussy mercilessly.")  
+![Between purple stockings](./between-purple-stockings.jpg "I want to bury my face in your sweet overflowing pussy, feel your thighs on either side of my head, and make you cum with my tongue gently on your sensitive clit, and my fingers fucking your pussy mercilessly.")  
 2023-02-19
 
 
