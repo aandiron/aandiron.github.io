@@ -7,6 +7,9 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: be careful to not get caught
+![Shh. My boyfriend is outside](./shh-my-boyfriend-is-outside.jpg "I want you to secretly show me your titties and pussy, and then beg me to make you cum quietly so nobody knows even though they are nearby. I want your pretty cunt to secretly be mine.")  
+2023-02-21
 
 ## You are a goddess: men worship you on their knees
 ![Between purple stockings](./between-purple-stockings.jpg "I want to bury my face in your sweet overflowing pussy, feel your thighs on either side of my head, and make you cum with my tongue gently on your sensitive clit, and my fingers fucking your pussy mercilessly.")  
