@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You like it a little rough: and you like getting wet
+![In the waterfall](./in-the-waterfall.jpg "I want you up against a wall, the water falling down on your shoulders and running down your naked back and over your ass. I want the joints of your knees hooked over the crooks of my elbows, so I can lift your legs up and press you hard up against the wall while I kiss you. And you'll be helpless as I force your legs very wide -- wide enough so I can drive my cock so deep up inside you that you'll worry for a moment that I'm going to break you.")  
+2023-02-23
+
+
 ## You are kind of an exhibitionist: be careful to not get caught
 ![Shh. My boyfriend is outside](./shh-my-boyfriend-is-outside.jpg "I want you to secretly show me your titties and pussy, and then beg me to make you cum quietly so nobody knows even though they are nearby. I want your pretty cunt to secretly be mine.")  
 2023-02-21
