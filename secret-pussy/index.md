@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## You sometimes like to be used: by all the hot young men
+![Locker room titty fuck](./tammy-titty-fuck.jpg "Line up all the hot boys, and let them pay you to slide their cocks between your beautiful tits until you have a fist full of bill and hot cum all over your chest. I'd be in that line because I love seeing your tits, I love touching your tits, and I love fucking your tits.")  
+2023-02-26
+
+
 ## You like it a little rough: and you like getting wet
 ![In the waterfall](./in-the-waterfall.jpg "I want you up against a wall, the water falling down on your shoulders and running down your naked back and over your ass. I want the joints of your knees hooked over the crooks of my elbows, so I can lift your legs up and press you hard up against the wall while I kiss you. And you'll be helpless as I force your legs very wide -- wide enough so I can drive my cock so deep up inside you that you'll worry for a moment that I'm going to break you.")  
 2023-02-23
