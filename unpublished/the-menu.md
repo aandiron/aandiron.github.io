@@ -12,7 +12,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $20 - You're eating a banana (peeled) pic
 
-* [ ] $50 - **Your beautiful tit in your hand, your cute tongue extended, licking your own nipple**
+* [ ] $50 - ~~Your beautiful tit in your hand, your cute tongue extended, licking your own nipple~~
 
 * [ ] $15 - You are wearing a bikini in a recent hot pic
 
