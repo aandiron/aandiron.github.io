@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a tiny fairy: and you taste delicious
+![Tinkerbell pussy lick](./tinkerbell-pussy-lick.jpg "I want to set your pussy down on the flat of my tongue and taste your wild wetness.")  
+2023-03-01
+
+
 ## You are a tiny fairy: show off what you can do
 ![Tinkerbell titty suck](./tinkerbell-titty-suck.jpg "Lift your big beautiful titty in your tiny hand and lick that sweet nipple.")  
 2023-02-28
