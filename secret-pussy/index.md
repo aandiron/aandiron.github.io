@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are a tiny fairy: how about a tinker toy?
+![Tinker toy](./tinkerbell-wacum-tablet.jpg "I want to take a big toy and ram it up your cute little pussy. I want to fuck you with something so big it makes you feel like a tiny creature.")  
+2023-03-02
+
+
 ## You are a tiny fairy: and you taste delicious
 ![Tinkerbell pussy lick](./tinkerbell-pussy-lick.jpg "I want to set your pussy down on the flat of my tongue and taste your wild wetness.")  
 2023-03-01
