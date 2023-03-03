@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## You are kind of an exhibitionist: and you know how to have fun at work
+![Remote control](./remote-control.jpg "I want to get my vibrator down your panties and slowly increase the intensity while you are in a work meeting. I want to whisper in your ear and tell you how hot you are, how hard you make me, and all the things I would be doing to you if you weren't on a work call right now.")  
+2023-03-03
+
+
 ## You are a tiny fairy: how about a tinker toy?
 ![Tinker toy](./tinkerbell-wacum-tablet.jpg "I want to take a big toy and ram it up your cute little pussy. I want to fuck you with something so big it makes you feel like a tiny creature.")  
 2023-03-02
@@ -35,6 +40,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ## You are kind of an exhibitionist: be careful to not get caught
 ![Shh. My boyfriend is outside](./shh-my-boyfriend-is-outside.jpg "I want you to secretly show me your titties and pussy, and then beg me to make you cum quietly so nobody knows even though they are nearby. I want your pretty cunt to secretly be mine.")  
 2023-02-21
+
 
 ## You are a goddess: men worship you on their knees
 ![Between purple stockings](./between-purple-stockings.jpg "I want to bury my face in your sweet overflowing pussy, feel your thighs on either side of my head, and make you cum with my tongue gently on your sensitive clit, and my fingers fucking your pussy mercilessly.")  
