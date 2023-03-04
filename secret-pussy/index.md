@@ -6,6 +6,12 @@ layout: default
 A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
+a-spoonfull-of-sugar.jpg
+
+## You have magic: a spoonfull of sugar helps the medicine go down
+![A spoonfull of sugar](./a-spoonfull-of-sugar.jpg "I want you to be my nanny. Get on your knees and take my medicine for me you hot fucking slutty bitch.")  
+2023-03-04
+
 
 ## You are kind of an exhibitionist: and you know how to have fun at work
 ![Remote control](./remote-control.jpg "I want to get my vibrator down your panties and slowly increase the intensity while you are in a work meeting. I want to whisper in your ear and tell you how hot you are, how hard you make me, and all the things I would be doing to you if you weren't on a work call right now.")  
