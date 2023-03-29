@@ -54,6 +54,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $100 -- You are in a tight shirt, no bra, nipples showing; panties down around knees
 
+* [ ] $150 -- **Video where you remove your bra from under your shirt, then pull your shirt up, slowly revealing your tits, and over your head.**
+
 * [ ] $50 -- audio recording of yourself cumming thinking about me
 
 * [ ] $75 -- let me listen to you cum on the phone while I jack off
