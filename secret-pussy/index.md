@@ -6,7 +6,11 @@ layout: default
 A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
-a-spoonfull-of-sugar.jpg
+
+## I want to read dirty stories to you while you hold my throbbing cock in your little hand.
+![library handjob](./library-handjob.jpg "I want to read dirty stories to you while you hold my throbbing cock in your little hand.")  
+2023-04-02
+
 
 ## You have magic: a spoonfull of sugar helps the medicine go down
 ![A spoonfull of sugar](./a-spoonfull-of-sugar.jpg "I want you to be my nanny. Get on your knees and take my medicine for me you hot fucking slutty bitch.")  
