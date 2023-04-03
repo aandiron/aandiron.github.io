@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## I want to figure out how much I have to pay you so that you'll let me bind you and do anything I want to you.
+![get the maid by the hair](./23.0401sophie.jpg "I want to figure out how much I have to pay you so that you'll let me bind you and do anything I want to you.")  
+2023-04-03
+
+
 ## I want to read dirty stories to you while you hold my throbbing cock in your little hand.
 ![library handjob](./library-handjob.jpg "I want to read dirty stories to you while you hold my throbbing cock in your little hand.")  
 2023-04-02
