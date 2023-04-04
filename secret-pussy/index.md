@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## I can't resist you in an outfit. Any outfit. But especially not something that shows off your round hips and pretty titties.
+![cum dumpster](./remember-that-time-you-were-going-to-wear-a-french-maid-outfit-for-me-4.jpg "Remember that time you were going to wear a french maid outfit for me?")  
+2023-04-04
+
+
 ## I want to figure out how much I have to pay you so that you'll let me bind you and do anything I want to you.
 ![get the maid by the hair](./23.0401sophie.jpg "I want to figure out how much I have to pay you so that you'll let me bind you and do anything I want to you.")  
 2023-04-03
