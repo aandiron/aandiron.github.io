@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## Put on a pretty dress. Get on your knees. Look up at me. And give me the best blowjob you've ever given anyone in your life.
+![looking up](./sweetsophie.jpg "Put on a pretty dress. Get on your knees. Look up at me. And give me the best blowjob you've ever given anyone in your life.")  
+2023-04-20
+
+
 ## I want you to hold my balls in your little hand while you rub your beautiful breasts against my body.
 ![cat necking](./cat-necking.jpg "I want you to hold my balls in your little hand while you rub your beautiful breasts against my body.")  
 2023-04-17
