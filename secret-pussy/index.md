@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## Some days I want to completely possess you. I want you bound and face down on the bed, your ass gripped tightly in my hands while I drive deep up inside your perfect pussy.
+![bound down](./23.0308abby.jpg "Some days I want to completely possess you. I want you bound and face down on the bed, your ass gripped tightly in my hands while I drive deep up inside your perfect pussy.")  
+2023-04-21
+
+
 ## Put on a pretty dress. Get on your knees. Look up at me. And give me the best blowjob you've ever given anyone in your life.
 ![looking up](./sweetsophie.jpg "Put on a pretty dress. Get on your knees. Look up at me. And give me the best blowjob you've ever given anyone in your life.")  
 2023-04-20
