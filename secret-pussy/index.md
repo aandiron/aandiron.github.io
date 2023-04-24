@@ -6,6 +6,12 @@ layout: default
 A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
+ass-grabbin-in-the-rain.jpg
+
+## Put you arms around me and press yourself against me. I want to hold your amazing ass full in both of my hands.
+![ass grabbin in the rain](./ass-grabbin-in-the-rain.jpg "Put you arms around me and press yourself against me. I want to hold your amazing ass full in both of my hands.")  
+2023-04-24
+
 
 ## Some days I want to completely possess you. I want you bound and face down on the bed, your ass gripped tightly in my hands while I drive deep up inside your perfect pussy.
 ![bound down](./23.0308abby.jpg "Some days I want to completely possess you. I want you bound and face down on the bed, your ass gripped tightly in my hands while I drive deep up inside your perfect pussy.")  
