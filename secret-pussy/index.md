@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## I want to throw you over my shoulder and carry you off. I want your ass in my hand while I whisper in your ear all the things I'm going to do to you when I put you down.
+![carried off](./carried-off.jpg "I want to throw you over my shoulder and carry you off. I want your ass in my hand while I whisper in your ear all the things I'm going to do to you when I put you down.")  
+2023-04-25
+
+
 ## Put you arms around me and press yourself against me. I want to hold your amazing ass full in both of my hands.
 ![ass grabbin in the rain](./ass-grabbin-in-the-rain.jpg "Put you arms around me and press yourself against me. I want to hold your amazing ass full in both of my hands.")  
 2023-04-24
