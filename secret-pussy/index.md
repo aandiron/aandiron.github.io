@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## Every time I think about you, your clamp on my balls gets tighter and my dick gets harder.
+![what you do to my balls](./23.0424dee.jpg "Everytime I think about you -- particularly when I get a glimpse of your tits -- your clamp on my balls gets tighter and my dick gets harder.")  
+2023-04-26
+
+
 ## I want to throw you over my shoulder and carry you off. I want your ass in my hand while I whisper in your ear all the things I'm going to do to you when I put you down.
 ![carried off](./carried-off.jpg "I want to throw you over my shoulder and carry you off. I want your ass in my hand while I whisper in your ear all the things I'm going to do to you when I put you down.")  
 2023-04-25
