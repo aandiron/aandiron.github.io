@@ -7,6 +7,12 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+
+## Let's go to the drive-in and ignore the movie. Use me and my cock as your rough fucktoy.
+![squelch choke in the car](./squelch-choke.jpg "Let's go to the drive-in and ignore the movie. Use me and my cock as your rough fucktoy.")  
+2023-04-27
+
+
 ## Every time I think about you, your clamp on my balls gets tighter and my dick gets harder.
 ![what you do to my balls](./23.0424dee.jpg "Everytime I think about you -- particularly when I get a glimpse of your tits -- your clamp on my balls gets tighter and my dick gets harder.")  
 2023-04-26
