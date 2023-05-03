@@ -5,14 +5,12 @@ layout: default
 # Prix Fixe Menu --- May 5th and 6th, 2023
 * $300 includes evertything
 * Select one item from each section
-* (All items are vegan)
-* What's on the menu? _You are_ (of course)
-
+* What's on the menu? _You_ are, of course. That's why you get _paid_ $300 for partaking in today's meal.
 
 ## Hors d'oeuvre
 * Picture of your lips
-* Picture of your cute outfit
-* Picture of your pretty cleavage
+* Picture of you in a cute outfit
+* Picture of your lovely cleavage or curvy ass (your choice)
 
 ## Appetizer
 * Picture of your lips wrapped around something extremely suggestive
