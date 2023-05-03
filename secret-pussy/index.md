@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## I want to take you for a ride in the car. Ride up and down on my cock, your cute ass bouncing against me, until you make me cum inside your lovely so-wet pussy.
+![riding cock in the car](./sherry-returns.jpg "I want to take you for a ride in the car. Ride up and down on my cock, your cute ass bouncing against me, until you make me cum inside your lovely so-wet pussy.")  
+2023-05-03
+
+
 ## Come fly with me. And when we get up there, I'll pay you to go down on me. I want your pretty lips sliding up and down my cock. Suck me off until my cum spurts down your throat, and make sure you love every second of it. [I want you to get wet just because you love sucking my cock so much.](https://aandiron.github.io/stories/make-your-lover/2.Take-Off-Go-Around_collected-stories.html)
 ![go up to go down](./23.0425mona.jpg "Come fly with me. And when we get up there, I'll pay you to go down on me. I want your pretty lips sliding up and down my cock. Suck me off until my cum spurts down your throat, and make sure you love every second of it. I want you to get wet just because you love sucking my cock so much.")  
 2023-04-28
