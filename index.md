@@ -11,6 +11,7 @@ This web page is the source from which all other A.Andiron postings flow. But if
 
 ## Stories
 * [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/)
+* [Blood and Sand](./stories/blood-and-sand.md)
 * [The Woman-Machine](./stories/the-woman-machine.md) (And it's sister piece: [The Man-Machine](./stories/the_man_machine.md))
 * [The Architect](./stories/a.andiron_The-Architect.md)
 * [Along The Border](./stories/along-the-border.md)
