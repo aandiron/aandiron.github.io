@@ -2,7 +2,7 @@
 layout: default
 ---
 
-# Prix Fixe Menu --- May 5th and 6th, 2023
+# Prix Fixe Menu --- May 5th 2023
 * $300 includes evertything
 * Select one item from each section
 * What's on the menu? _You_ are, of course. That's why you get _paid_ $300 for partaking in today's meal.
