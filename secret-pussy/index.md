@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## I want to fill your pussy with such a huge cock that it takes hold of your heart, and sqeezes.
+![cock heart grab](./Lucia_Dovicakova-heart-grab.jpg "I want to fill your pussy with such a huge cock that it takes hold of your heart, and sqeezes.")  
+2023-05-05
+
+
 ## I want to take you for a ride in the car. Ride up and down on my cock, your cute ass bouncing against me, until you make me cum inside your lovely so-wet pussy.
 ![riding cock in the car](./sherry-returns.jpg "I want to take you for a ride in the car. Ride up and down on my cock, your cute ass bouncing against me, until you make me cum inside your lovely so-wet pussy.")  
 2023-05-03
