@@ -34,7 +34,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $50 --- A butterfly on your face... and you're topless
 
-* [ ] $50 --- A short video showing your lips emphatically mouthing the words "I want to suck your cock"
+* [ ] $50 --- **A short video showing your lips emphatically mouthing the words "I want to suck your cock" (but no audio)**
 
 * [ ] $50 --- You have a tentacle pressed between your tits like you're getting a good slithery titty fucking
 
