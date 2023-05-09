@@ -7,6 +7,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 
 ----------------------------------------
 
+## I want your beautiful lips wide and round below, your mouth eagerly lapping up the cum the flows off my cock as it pulses with the pleasure you bestowed on me.
+![driiiiiiiip](./driiiiiiiip.jpg "I want your beautiful lips wide and round below, your mouth eagerly lapping up the cum the flows off my cock as it pulses with the pleasure you bestowed on me.")  
+2023-05-09
+
+
 ## I want to fuck you up against a wall. I want to spread your legs, lift you from the ground, and hold your ass in my hands while I slide deep into you. 
 ![ass supported](./ass-supported.jpg "I want to fuck you up against a wall. I want to spread your legs, lift you from the ground, and hold your ass in my hands while I slide deep into you.")  
 2023-05-08
