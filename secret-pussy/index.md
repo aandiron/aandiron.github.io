@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## I want to taste my cum in your pussy.
+![how bad you want to lick me clean](./how-bad-you-want-to-lick-me-clean.jpg "I want to taste my cum in your pussy.")  
+2023-05-12
+
+
 ## Lay your warm soft lips against my cock. Feel how hard you make me. Imagine how much I'm going to cum in your lovely little mouth.
 ![dick smooch](./dicksmooch.jpg "Lay your warm soft lips against my cock. Feel how hard you make me. Imagine how much I'm going to cum in your lovely little mouth.")  
 2023-05-10
