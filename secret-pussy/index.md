@@ -8,7 +8,7 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
-## I want to taste my cum in your pussy.
+## I want to taste my cum on your pussy lips.
 ![how bad you want to lick me clean](./how-bad-you-want-to-lick-me-clean.jpg "I want to taste my cum in your pussy.")  
 2023-05-12
 
