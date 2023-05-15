@@ -8,6 +8,10 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## Please sit in my lap. Please let me touch your tits. Please pull your panties aside. Please rub yourself against me. Please, please let me put it inside you.
+![Please let me put it in](./please-let-me-put-it-in.jpg "Please sit in my lap. Please let me touch your tits. Please pull your panties aside. Please rub yourself against me. Please, please let me put it inside you.")  
+2023-05-15
+
 
 ## I want to make you a mother all over again for mother's day.
 ![enjoy this breeding session](./enjoy-this-breeding-session.jpg "I want to make you a mother all over again for mother's day.")  
