@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## I want to slide my cock between your perfect tits until you make me cum. I want to watch my cum spurt all over your beautiful neck and chest and watch it slide hot and sticky over the curves of your tits.
+![pearl necklace](./23.0516tammy.jpg "I want to slide my cock between your perfect tits until you make me cum. I want to watch my cum spurt all over your beautiful neck and chest and watch it slide hot and sticky over the curves of your tits.")  
+2023-05-20
+
+
 ## Please sit in my lap. Please let me touch your tits. Please pull your panties aside. Please rub yourself against me. Please, please let me put it inside you.
 ![Please let me put it in](./please-let-me-put-it-in.jpg "Please sit in my lap. Please let me touch your tits. Please pull your panties aside. Please rub yourself against me. Please, please let me put it inside you.")  
 2023-05-15
