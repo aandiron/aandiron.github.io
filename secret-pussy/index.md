@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## Look up at me over my cock which you made so hard just by being so hot, and tell me how you can't wait to slip your mouth onto it because it's going to be the most fatastic thing you ever put in your mouth.
+![birthday whipped cream](./birthday-whipped-cream.jpg "Look up at me over my cock which you made so hard just by being so hot, and tell me how you can't wait to slip your mouth onto it because it's going to be the most fatastic thing you ever put in your mouth.")  
+2023-05-25
+
+
 ## I want to slide my cock between your perfect tits until you make me cum. I want to watch my cum spurt all over your beautiful neck and chest and watch it slide hot and sticky over the curves of your tits.
 ![pearl necklace](./23.0516tammy.jpg "I want to slide my cock between your perfect tits until you make me cum. I want to watch my cum spurt all over your beautiful neck and chest and watch it slide hot and sticky over the curves of your tits.")  
 2023-05-20
