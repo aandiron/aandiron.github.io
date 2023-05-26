@@ -8,6 +8,13 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+
+
+## Wear something subtly hot to work for me today. When you look good, you get me so turned on I want to fold you in half and fuck you so hard you see stars.
+![dressed for work](./14.0414tina-2478272848.jpg "I want to watch you strip every stitch off your body... real slowly. And let you watch me stroke my hard cock while you do it.") ![bent double](./GregBrs_bent-double.jpg "I want my cock buried deep inside you. I want to spurt my cum so far up in you that there's nothing to stop me from putting another baby in you.") 
+2023-05-26
+
+
 ## Look up at me over my cock which you made so hard just by being so hot, and tell me how you can't wait to slip your mouth onto it because it's going to be the most fatastic thing you ever put in your mouth.
 ![birthday whipped cream](./birthday-whipped-cream.jpg "Look up at me over my cock which you made so hard just by being so hot, and tell me how you can't wait to slip your mouth onto it because it's going to be the most fatastic thing you ever put in your mouth.")  
 2023-05-25
