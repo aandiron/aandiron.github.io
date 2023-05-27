@@ -8,6 +8,9 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## I want to hold your warm wet pussy against my fingers while my cock spurts jizz deep in your sweet ass.
+![pussy held, ass filled](./pussy-held-ass-filled.jpg "I want to hold your warm wet pussy against my fingers while my cock spurts jizz deep in your sweet ass.")  
+2023-05-27
 
 
 ## Wear something subtly hot to work for me today. When you look good, you get me so turned on I want to fold you in half and fuck you so hard you see stars.
