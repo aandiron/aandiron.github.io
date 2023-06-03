@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## All I want is a single night alone with you. One very long night.
+![hotel service](./23.0601sasha.jpg "I'd make you into my fucktoy, and fuck you every way I could imagine, until I've cum in all your holes.")  
+2023-06-02
+
+
 ## I want you to provide service to me [aboard an airplane](https://aandiron.github.io/stories/make-your-lover/2.Take-Off-Go-Around_collected-stories.html). Straddle my lap, open your blouse for me, spread your legs, and slide your hot cunt down my tumid cock. I want to pound your sweet pussy every time the plane hits a rough spot!
 ![airplane service](./23.0520mona.jpg "Straddle my lap, open your blouse for me, spread your legs, and slide your hot cunt down my tumid cock. I want to pound your sweet pussy every time the plane hits a rough spot!")  
 2023-05-30
