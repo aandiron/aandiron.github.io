@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## All I want is to make you so turned on that you can't help but make yourself cum.
+![fap fap fap](./goodnight-fap-fap.jpg "I want to know you are putting your dainty little fingers in your wet pussy and thinking about me fucking you until you make yourself cum with a leg-shaking orgasm.")  
+2023-06-03
+
+
 ## All I want is a single night alone with you. One very long night.
 ![hotel service](./23.0601sasha.jpg "I'd make you into my fucktoy, and fuck you every way I could imagine, until I've cum in all your holes.")  
 2023-06-02
