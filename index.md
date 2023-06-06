@@ -26,8 +26,7 @@ These stories also generally attempt to go somewhere that others haven't. There'
 * [How the Mouse Takes the Cheese](./stories/mousetrap.md)
 * [Tremble the Flowering Wood](./stories/Tremble_the_Flowering_Wood.md)
 * [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/)
-	* A collection of 12 stories 
-	* [Purchase on Amazon (paper or e-book)](https://www.amazon.com/Erotica-Make-Lover-Wonder-About/dp/B08P3PC8LF)
+	* A collection of 12 stories; [Purchase on Amazon (paper or e-book)](https://www.amazon.com/Erotica-Make-Lover-Wonder-About/dp/B08P3PC8LF)
 
 #### (Stories under development)
 * Unseen Horror
@@ -41,8 +40,7 @@ These stories also generally attempt to go somewhere that others haven't. There'
 
 ## Mailing list
 Fear not the spam. My list isn't some vast database of contacts, it's more like a friends-and-family thing. Besides, my productivity is so low, you'll probably wish to see more emails from me, not fewer. 
-* Email me and ask to be added: [a.andiron@protonmail.com](mailto://a.andiron@protonmail.com)
-	* (No names or anything other than your email address required.)
+* Email me and ask to be added: [a.andiron@protonmail.com](mailto://a.andiron@protonmail.com) (No names or anything other than your email address required.)
 
   
 
