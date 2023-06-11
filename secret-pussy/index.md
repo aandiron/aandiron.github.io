@@ -8,6 +8,11 @@ A not-for-public-consumption collection to generate inspiration for my stories.
 ----------------------------------------
 
 
+## The taste of your pussy makes my cock hard
+![pussy makes cock hard](./23.0610dee.jpg "Put high heels on. Spread your legs. Lower your wet cunt to my lips and let me slide my tongue all over your clit. The taste of your pussy makes my cock hard. It pushes me to the edge of cumming. If only I could slip it into your delicious cunt.")  
+2023-06-11
+
+
 ## You make me horny
 ![you make me horny](./you-make-me-horny.jpg "I want to leave my hand prints all over your hot little body. I want your tit in my palm, warm and round, and I want you to remember the feeling of my hands on you. I want to make you so horny.")  
 2023-06-06
