@@ -13,7 +13,7 @@ But tapping into the shamanistic aspects of writing is extremely challenging. I 
 These stories also generally attempt to go somewhere that others haven't. There's really weird monsters, interspecies shenanigans, bent realities, and some uncalled-for violence. If I ever manage to successfully cast a spell with these stories, the reader will be left with the feeling that they had a bunch of filthy hirsute metalheads wearing stinking long-unwashed leather tear through their bedrooms on motorcycles with illegal exhaust modifications. If that sounds like the erotica you always searched for but never found, then it may behoove you to follow me. I might not be there yet, but that's where I want to go.
 
 --A. Andiron
-
+  
 
 ## Stories
 * [Blood and Sand](./stories/blood-and-sand.md) (Banned by Literotica)
