@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## Study for [Take Off, Go Around](https://aandiron.github.io/stories/make-your-lover/2.Take-Off-Go-Around_collected-stories.html)
+![study for toga 1](./study-for-toga-1.jpg "I want to stand by and watch as the cocks of two hot men fill you up in a cramped space.")  
+Prompt: _MMF threesome in the back of an airplane. Two very attractive naked men and one very attractive woman. One of the men is a blond pilot. The woman is short._  
+2023-06-17
+
+
 ## Study for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
 ![study for dragon 6](./study-for-dragon-6.jpg "You look so tempting and delicious. Spread your legs, and I'll drive my great stone cock up into your hot cunt.")  
 Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her shoulders. A giant handsome dragon made of stone sits next to her. At a drive-in theater, nighttime_  
