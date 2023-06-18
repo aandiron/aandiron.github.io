@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## Study for [Blood and Sand](https://aandiron.github.io/stories/blood-and-sand.html)
+![study for blood and sand 2](./study-for-desert-2.jpg "I'll come in the darkness to find you and fuck you so hard you lose control and give up your grip on reality.")  
+Prompt: _a handsome thin nude man, 38 years old, blood all over his hands and body, holding the handle of a large machete, dark gray hair, beard, among desert rocks, twilight, ominous, old film still_  
+2023-06-18
+
+
 ## Study for [Take Off, Go Around](https://aandiron.github.io/stories/make-your-lover/2.Take-Off-Go-Around_collected-stories.html)
 ![study for toga 1](./study-for-toga-1.jpg "I want to stand by and watch as the cocks of two hot men fill you up in a cramped space.")  
 Prompt: _MMF threesome in the back of an airplane. Two very attractive naked men and one very attractive woman. One of the men is a blond pilot. The woman is short._  
