@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## Study for [La Cappella](https://aandiron.github.io/stories/make-your-lover/4.La-Cappella_collected-stories.html)
+![study for chapel 1](./study-for-chapel-1.jpg "I'll come up behind you while you kneel before the altar, and slide my hand up between your legs. I'll bend you over and make a sacrifice of your innocense on your knees before the sight of God.")  
+Prompt: _a beautiful short curvy middle-aged American woman with natural blonde hair, an attractive Italian man, having sex, in a chapel. a beach is visible outside the door, sunset, romantic, erotic_  
+2023-06-19
+
+
 ## Study for [Blood and Sand](https://aandiron.github.io/stories/blood-and-sand.html)
 ![study for blood and sand 2](./study-for-desert-2.jpg "I'll come in the darkness to find you and fuck you so hard you lose control and give up your grip on reality.")  
 Prompt: _a handsome thin nude man, 38 years old, blood all over his hands and body, holding the handle of a large machete, dark gray hair, beard, among desert rocks, twilight, ominous, old film still_  
