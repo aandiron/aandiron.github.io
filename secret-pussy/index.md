@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## Study for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
+![study for tremble 1](./study-for-tremble-1.jpg "I'll take you in the woods, natural and raw. You'll feel me grow inside you, and fill you with my hot pollination.")  
+Prompt: _A tall tough naked man with tree bark skin texture, hair and beard are twigs and moss. having sex with a pretty, short tough naked woman wearing a toolbelt, in the woods, evening_  
+2023-06-19
+
+
 ## Study for [La Cappella](https://aandiron.github.io/stories/make-your-lover/4.La-Cappella_collected-stories.html)
 ![study for chapel 1](./study-for-chapel-1.jpg "I'll come up behind you while you kneel before the altar, and slide my hand up between your legs. I'll bend you over and make a sacrifice of your innocense on your knees before the sight of God.")  
 Prompt: _a beautiful short curvy middle-aged American woman with natural blonde hair, an attractive Italian man, having sex, in a chapel. a beach is visible outside the door, sunset, romantic, erotic_  
