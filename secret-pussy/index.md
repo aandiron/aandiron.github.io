@@ -8,7 +8,7 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
-## 2nd study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
+## Study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
 ![study for kraken 3-1](./study-for-kraken_3-1.jpg "Spread your warm little legs for me, and I'll slide my muscular throbbing tentacle up inside you. You seething hot little monster whore.")  
 Prompt: _large squid tentacles wrap around the legs and up the thighs of a beautiful, short, nude, middle-aged woman with natural blonde hair and glasses, full lips, angular nose_  
 2023-06-20
@@ -44,7 +44,7 @@ Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her 
 2023-06-16
 
 
-## 2nd study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
+## Study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
 ![study for kraken 2](./study-for-kraken-2.jpg "I want to wrap my tentacles around you and squeeze. I want to feel the warm wet space between your beautiful legs.")  
 Prompt: _large squid tentacles wrap around the legs and up the thighs of a beautiful, short, nude, middle-aged woman with natural blonde hair and glasses, full lips, angular nose, seen from the side. the background is flat black. the woman is underwater, but you cannot see the surface_  
 2023-06-13
