@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## 2nd study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
+![study for kraken 3-1](./study-for-kraken_3-1.jpg "Spread your warm little legs for me, and I'll slide my muscular throbbing tentacle up inside you. You seething hot little monster whore.")  
+Prompt: _large squid tentacles wrap around the legs and up the thighs of a beautiful, short, nude, middle-aged woman with natural blonde hair and glasses, full lips, angular nose_  
+2023-06-20
+
+
 ## Study for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study for tremble 1](./study-for-tremble-1.jpg "I'll take you in the woods, natural and raw. You'll feel me grow inside you, and fill you with my hot pollination.")  
 Prompt: _A tall tough naked man with tree bark skin texture, hair and beard are twigs and moss. having sex with a pretty, short tough naked woman wearing a toolbelt, in the woods, evening_  
