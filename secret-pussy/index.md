@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 
+## Study for [Your Liquid Lips](https://aandiron.github.io/stories/liquidlips.html)
+![study for liquid lips](./study-for-liquid-lips.jpg "I want to kiss your wet, full lips. And then slip my cock my cock slowly between them.")  
+Prompt: _your liquid lips_  
+2023-06-22
+
+
 ## Study for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study for tremble 2](./study-for-tremble-2.jpg "Feel my cock, huge and monstrous, thrusing up inside you, splitting you apart, filling you with flowery cum.")  
 Prompt: _a large humanoid monster, deep in the dark woods, skin made of tree bark, beard and hair made of twigs. standing next to the monster is a a beautiful, small, nude, working-class woman with natural blonde hair wearing a toolbelt_  
