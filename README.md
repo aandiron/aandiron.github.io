@@ -4,7 +4,9 @@
 * http://aandiron.github.io/
 * Using theme: jekyll-theme-hacker
 	* https://github.com/pages-themes/hacker
-	* (Removed link to github in _layouts/default.html)
+* theme modifications:
+	* Removed link to github in layouts/default.html)
+	* Added underline to links in assets/css/style.scss (overrides style from maintainer in sass/)
 
 ## License:
 * Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
