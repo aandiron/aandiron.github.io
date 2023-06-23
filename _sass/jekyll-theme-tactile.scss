@@ -60,10 +60,12 @@ body {
 }
 
 a {
-  color: #d5000d;
   text-decoration: underline;
+  color: #d5000d;
 }
+
 a:hover {
+  text-decoration: underline;
   color: #c5000c;
 }
 
