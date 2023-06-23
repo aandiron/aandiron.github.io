@@ -9,7 +9,8 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 
 ## Studies for [The Woman-Machine](https://aandiron.github.io/stories/the-woman-machine.html)
-![study-for-womanmachine-2](./study-for-womanmachine-2.jpg) ![study-for-womanmachine-3](./study-for-womanmachine-3.jpg) ![study-for-womanmachine-4](./study-for-womanmachine-4.jpg) ![study-for-womanmachine-5](./study-for-womanmachine-5.jpg)  
+![study-for-womanmachine-2](./study-for-womanmachine-2.jpg) ![study-for-womanmachine-3](./study-for-womanmachine-3.jpg) 
+![study-for-womanmachine-4](./study-for-womanmachine-4.jpg) ![study-for-womanmachine-5](./study-for-womanmachine-5.jpg)  
 Prompt: _a very attractive milf with natural blonde hair having an orgasm on a motorcycle, ecstasy, erotic  
 2023-06-23
 
