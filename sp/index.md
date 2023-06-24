@@ -2,7 +2,7 @@
 layout: default
 ---
 
-# Secret Pussy (Mark II)
+# Secret Pussy
 A not-for-public-consumption collection of ai images to generate inspiration for my stories.
 
 ----------------------------------------
@@ -11,7 +11,7 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ## Studies for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
 ![study-for-dragon-2](./study-for-dragon-2.jpg) 
 ![study-for-dragon-4](./study-for-dragon-4.jpg)   
-![study-for-dragon-3](./study-for-dragon-3.jpg) 
+![study-for-dragon-3](./study-for-dragon-3.jpg)   
 Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her shoulders. A giant handsome dragon made of stone sits next to her. At a drive-in theater_  
 2023-06-24
 
@@ -39,6 +39,7 @@ Prompt: _a large humanoid monster, deep in the dark woods, skin made of tree bar
 
 ## Study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
 ![study for kraken 3-1](./study-for-kraken_3-1.jpg "Spread your warm little legs for me, and I'll slide my muscular throbbing tentacle up inside you. You seething hot little monster whore.")  
+
 [//]: # (Prompt: _large squid tentacles wrap around the legs and up the thighs of a beautiful, short, nude, middle-aged woman with natural blonde hair and glasses, full lips, angular nose_)  
 2023-06-20
 
@@ -51,6 +52,7 @@ Prompt: _A tall tough naked man with tree bark skin texture, hair and beard are 
 
 ## Study for [La Cappella](https://aandiron.github.io/stories/make-your-lover/4.La-Cappella_collected-stories.html)
 ![study for chapel 1](./study-for-chapel-1.jpg "I'll come up behind you while you kneel before the altar, and slide my hand up between your legs. I'll bend you over and make a sacrifice of your innocense on your knees before the sight of God.")  
+
 [//]: # (Prompt: _a beautiful short curvy middle-aged American woman with natural blonde hair, an attractive Italian man, having sex, in a chapel. a beach is visible outside the door, sunset, romantic, erotic_)  
 2023-06-19
 
@@ -75,12 +77,14 @@ Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her 
 
 ## Study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
 ![study for kraken 2](./study-for-kraken-2.jpg "I want to wrap my tentacles around you and squeeze. I want to feel the warm wet space between your beautiful legs.")  
+
 [//]: # (Prompt: _large squid tentacles wrap around the legs and up the thighs of a beautiful, short, nude, middle-aged woman with natural blonde hair and glasses, full lips, angular nose, seen from the side. the background is flat black. the woman is underwater, but you cannot see the surface_)  
 2023-06-13
 
 
 ## Study for [Kraken](https://aandiron.github.io/stories/make-your-lover/1.Kraken_collected-stories.html)
 ![study for kraken](./study-for-kraken.jpg "I'd like to slip my fat tentacle into your tight, wet little cunt.")  
+
 [//]: # )Prompt: _A beautiful middle-aged topless woman with natural blonde hair and very small natural breasts, wearing glasses and looking at the camera. The bottom of the photo is cropped at her curvy hips. She is holding a tentacle that rises from the bottom of the photo and lays across her stomach. The end of the tentacle lays between her two breasts_)  
 2023-06-13
 
