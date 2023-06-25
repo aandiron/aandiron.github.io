@@ -10,9 +10,9 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 
 ## Studies for unwritten story
-![study-for-banana-2](./study-for-banana-2.jpg) 
+![study-for-banana-2](./study-for-banana-2.jpg)
 ![study-for-banana-3](./study-for-banana-3.jpg)   
-![study-for-banana-4](./study-for-banana-4.jpg)   
+![study-for-banana-4](./study-for-banana-4.jpg)
 ![study-for-banana-5](./study-for-banana-5.jpg)   
 Prompt: _a beautiful topless milf, natural blonde, full lips, glasses, wet, splashed with white goo, sucking a peeled banana, kneeling, erotic_  
 2023-06-25
