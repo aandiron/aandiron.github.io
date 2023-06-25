@@ -10,7 +10,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 ## Top priorities!
 * [ ] $20 --- Any 'normal' pic hot enough to make me cum --- send some samples and let me put them to the test.
 
-* [ ] $20 --- You're eating a banana (peeled) pic
+* [X] $20 --- You're eating a banana (peeled) pic
 
 * [ ] $50 --- ~~Your beautiful tit in your hand, your cute tongue extended, licking your own nipple~~
 
