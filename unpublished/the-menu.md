@@ -12,13 +12,15 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [X] $20 --- You're eating a banana (peeled) pic
 
+* [ ] $50 --- You're eating a banana (peeled), topless pic
+
 * [ ] $50 --- ~~Your beautiful tit in your hand, your cute tongue extended, licking your own nipple~~
 
 * [ ] $15 --- You are wearing a bikini in a recent hot pic
 
 * [ ] $30 --- Two-lips-o-cane: your beautiful lips wrapped around a candy cane
 
-* [ ] $100 --- You are standing naked astride your motorcycle (boots optional) --- Make good on fooling me on this one!
+* [ ] $100 --- You are standing naked astride your motorcycle (boots optional)
 
 * [ ] $30 --- You're wearing a man's oversized buttondown shirt, and it's unbuttoned. You aren't wearing a bra, and I can see the curve of your tits between the open shirt.
 
