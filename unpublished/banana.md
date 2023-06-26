@@ -25,11 +25,11 @@ Her nostrils flared with my scent, and she made little sounds of satisfaction as
 
 And then I imagined taking her hand, guiding her to her feet, my hand behind her neck, pulling her in towards me. And on her lips I could taste my cum. And her tongue pushed cum from her mouth into mine --- so much that I was forced to swallow. 
 
-I passed my hand down the front of her belly, and her pussy was wet on my fingertips. I could feel her panties soaked through against the back of my hand.
+And while I kissed her, I put my hand down her panties. Her pussy wet my fingertips. She was craving my cock inside her.
 
-All this passed through my head by the time she had taken two bites of her banana. I wanted to go over to her. I wanted to ask her to come home with me. I wanted to bend her over and fuck her, slide my cock into that wet pussy of hers.
+All this passed through my head by the time she had taken two bites of her banana. I wanted to go over to her. I wanted to ask her to come home with me. I wanted to bend her over and fuck her, slide my cock into that pussy of hers that I knew was so very wet and waiting for me.
 
-But when she had finished her banana, I felt shame. I had violated her trust. In my mind I had done such dirty things to her, and all she wanted was to eat her fruit in peace. I didn't want to be creepy, so I said nothing to her. I forced myself to look back down at my book, and the old axiom went through my head: always beware of who might be watching you eat a banana.
+But when she had finished her banana, I felt shame. I had violated her trust. In my mind I had done such dirty things to her, and all she wanted was to eat her fruit in peace. I didn't want to be creepy, so I said nothing to her. I forced myself to look back down at my book. I forced myself to read the whole page, without comprehension. And when I looked up again, she was gone.
 
 
 
