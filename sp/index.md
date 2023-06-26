@@ -17,7 +17,7 @@ Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her 
 2023-06-26
 
 
-## Studies for unwritten story
+## Studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-2](./study-for-banana-2.jpg)
 ![study-for-banana-3](./study-for-banana-3.jpg)   
 ![study-for-banana-4](./study-for-banana-4.jpg)
@@ -63,7 +63,7 @@ Prompt: _A tall tough naked man with tree bark skin texture, hair and beard are 
 ## Study for [La Cappella](https://aandiron.github.io/stories/make-your-lover/4.La-Cappella_collected-stories.html)
 ![study for chapel 1](./study-for-chapel-1.jpg "I'll come up behind you while you kneel before the altar, and slide my hand up between your legs. I'll bend you over and make a sacrifice of your innocense on your knees before the sight of God.")  
 
-[//]: # (Prompt: _a beautiful short curvy middle-aged American woman with natural blonde hair, an attractive Italian man, having sex, in a chapel. a beach is visible outside the door, sunset, romantic, erotic_)  
+Prompt: _a beautiful short curvy middle-aged American woman with natural blonde hair, an attractive Italian man, having sex, in a chapel. a beach is visible outside the door, sunset, romantic, erotic_  
 2023-06-19
 
 
