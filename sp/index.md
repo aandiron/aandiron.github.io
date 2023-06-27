@@ -10,8 +10,7 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ## Studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-1](./study-for-banana-1.jpg "Let me slip my banana between your beautiful lips.")   
-
-[//]: # (Prompt: _a beautiful topless middle-aged woman, natural blonde, full lips, glasses, wet, covered with white goo, sucking a banana, kneeling, erotic_)  
+Prompt: _a beautiful topless middle-aged woman, natural blonde, full lips, glasses, wet, covered with white goo, sucking a banana, kneeling, erotic_  
 2023-06-27
 
 
