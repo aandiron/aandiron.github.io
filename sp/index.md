@@ -8,11 +8,10 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 ## More studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
-![study-for-banana-6](./study-for-banana-2.jpg)
-![study-for-banana-7](./study-for-banana-3.jpg)   
-![study-for-banana-8](./study-for-banana-4.jpg)
-
-[//]: # (Prompt: _a natural blonde european milf wearing glasses and eating a banana in a coffee shop, erotic_)  
+![study-for-banana-6](./study-for-banana-6.jpg)
+![study-for-banana-7](./study-for-banana-7.jpg)   
+![study-for-banana-8](./study-for-banana-8.jpg)  
+Prompt: _a natural blonde european milf wearing glasses and eating a banana in a coffee shop, erotic_  
 2023-06-28
 
 
