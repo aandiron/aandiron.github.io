@@ -7,8 +7,16 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## More studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
+![study-for-banana-6](./study-for-banana-2.jpg)
+![study-for-banana-7](./study-for-banana-3.jpg)   
+![study-for-banana-8](./study-for-banana-4.jpg)
 
-## Studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
+[//]: # (Prompt: _a natural blonde european milf wearing glasses and eating a banana in a coffee shop, erotic_)  
+2023-06-28
+
+
+## Study for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-1](./study-for-banana-1.jpg "Let me slip my banana between your beautiful lips.")   
 Prompt: _a beautiful topless middle-aged woman, natural blonde, full lips, glasses, wet, covered with white goo, sucking a banana, kneeling, erotic_  
 2023-06-27
