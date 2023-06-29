@@ -7,6 +7,13 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## More studies for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
+![study-for-dragon-5](./study-for-dragon-5.jpg)
+![study-for-dragon-7](./study-for-dragon-7.jpg)   
+Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her shoulders. A giant handsome dragon made of stone sits next to her. At a drive-in theater, nighttime_  
+2023-06-29
+
+
 ## More studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-6](./study-for-banana-6.jpg)
 ![study-for-banana-7](./study-for-banana-7.jpg)   
