@@ -26,8 +26,7 @@ These stories also generally attempt to go somewhere that others haven't. There'
 * [Your Liquid Lips](./stories/liquidlips.md)
 * [How the Mouse Takes the Cheese](./stories/mousetrap.md)
 * [Tremble the Flowering Wood](./stories/Tremble_the_Flowering_Wood.md)
-* [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/)
-	* A collection of 12 stories; [Purchase on Amazon (paper or e-book)](https://www.amazon.com/Erotica-Make-Lover-Wonder-About/dp/B08P3PC8LF)
+* [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/) (A collection of 12 stories)
 
 #### (Stories under development)
 * Unseen Horror

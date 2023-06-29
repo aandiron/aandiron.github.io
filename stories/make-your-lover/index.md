@@ -1,6 +1,11 @@
+---
+layout: default
+---
+
 
 # Erotica to Make Your Lover Wonder About You
 
+* A collection of 12 stories; [Purchase on Amazon (paper or e-book)](https://www.amazon.com/Erotica-Make-Lover-Wonder-About/dp/B08P3PC8LF)
 
 0. [Introduction](./0.Introduction_collected-stories.md)
 1. [Kraken](./1.Kraken_collected-stories.md)
