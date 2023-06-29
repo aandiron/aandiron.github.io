@@ -1,5 +1,6 @@
 ---
 layout: default
+title: The Stories of A. Andiron
 ---
 
 # Tremble the Flowering Wood

@@ -1,5 +1,6 @@
 ---
 layout: default
+title: The Stories of A. Andiron
 ---
 
 # Prix Fixe Menu --- May 6th 2023

@@ -1,5 +1,6 @@
 ---
 layout: default
+title: The Stories of A. Andiron
 ---
 
 # How the Mouse Takes the Cheese

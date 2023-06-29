@@ -1,5 +1,6 @@
 ---
 layout: default
+title: The Stories of A. Andiron
 ---
 
 ## Unseen Horror (draft: 2021-01-18)

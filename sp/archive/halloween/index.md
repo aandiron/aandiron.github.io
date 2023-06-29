@@ -1,5 +1,6 @@
 ---
 layout: default
+title: The Stories of A. Andiron
 ---
 
 # Halloween-Themed Illustrated Pron -- It's a thing. Who knew?
