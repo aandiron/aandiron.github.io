@@ -8,6 +8,14 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## More studies for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
+![study-for-tremble-6](./study-for-tremble-6.jpg)
+![study-for-tremble-3](./study-for-tremble-4.jpg)   
+![study-for-tremble-4](./study-for-tremble-4.jpg)   
+Prompt: _tremble the flowering wood, ent monster, erotic, chainsaw_  
+2023-06-30
+
+
 ## More studies for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
 ![study-for-dragon-5](./study-for-dragon-5.jpg)
 ![study-for-dragon-7](./study-for-dragon-7.jpg)   
