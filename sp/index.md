@@ -10,7 +10,7 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ## More studies for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study-for-tremble-6](./study-for-tremble-6.jpg)
-![study-for-tremble-3](./study-for-tremble-4.jpg)
+![study-for-tremble-3](./study-for-tremble-3.jpg)
 ![study-for-tremble-4](./study-for-tremble-4.jpg)  
 Prompt: _tremble the flowering wood, ent monster, erotic, chainsaw_  
 2023-06-30
