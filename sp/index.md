@@ -10,22 +10,22 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ## More studies for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study-for-tremble-6](./study-for-tremble-6.jpg)
-![study-for-tremble-3](./study-for-tremble-4.jpg)   
-![study-for-tremble-4](./study-for-tremble-4.jpg)   
+![study-for-tremble-3](./study-for-tremble-4.jpg)
+![study-for-tremble-4](./study-for-tremble-4.jpg)  
 Prompt: _tremble the flowering wood, ent monster, erotic, chainsaw_  
 2023-06-30
 
 
 ## More studies for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
 ![study-for-dragon-5](./study-for-dragon-5.jpg)
-![study-for-dragon-7](./study-for-dragon-7.jpg)   
+![study-for-dragon-7](./study-for-dragon-7.jpg)  
 Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her shoulders. A giant handsome dragon made of stone sits next to her. At a drive-in theater, nighttime_  
 2023-06-29
 
 
 ## More studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-6](./study-for-banana-6.jpg)
-![study-for-banana-7](./study-for-banana-7.jpg)   
+![study-for-banana-7](./study-for-banana-7.jpg)
 ![study-for-banana-8](./study-for-banana-8.jpg)  
 Prompt: _a natural blonde european milf wearing glasses and eating a banana in a coffee shop, erotic_  
 2023-06-28
@@ -39,7 +39,7 @@ Prompt: _a beautiful topless middle-aged woman, natural blonde, full lips, glass
 
 ## Studies for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
 ![study-for-dragon-2](./study-for-dragon-2.jpg)
-![study-for-dragon-4](./study-for-dragon-4.jpg)   
+![study-for-dragon-4](./study-for-dragon-4.jpg)
 ![study-for-dragon-3](./study-for-dragon-3.jpg)   
 Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her shoulders. A giant handsome dragon made of stone sits next to her. At a drive-in theater_  
 2023-06-26
@@ -47,7 +47,7 @@ Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her 
 
 ## Studies for [unpublished story](https://aandiron.github.io/unpublished/banana)
 ![study-for-banana-2](./study-for-banana-2.jpg)
-![study-for-banana-3](./study-for-banana-3.jpg)   
+![study-for-banana-3](./study-for-banana-3.jpg)
 ![study-for-banana-4](./study-for-banana-4.jpg)
 ![study-for-banana-5](./study-for-banana-5.jpg)   
 
@@ -56,9 +56,9 @@ Prompt: _a very attractive naked woman, short, curvy, straight dark hair to her 
 
 
 ## Studies for [The Woman-Machine](https://aandiron.github.io/stories/the-woman-machine.html)
-![study-for-womanmachine-2](./study-for-womanmachine-2.jpg) 
-![study-for-womanmachine-4](./study-for-womanmachine-4.jpg)   
-![study-for-womanmachine-3](./study-for-womanmachine-3.jpg) 
+![study-for-womanmachine-2](./study-for-womanmachine-2.jpg)
+![study-for-womanmachine-4](./study-for-womanmachine-4.jpg)
+![study-for-womanmachine-3](./study-for-womanmachine-3.jpg)
 ![study-for-womanmachine-5](./study-for-womanmachine-5.jpg)  
 Prompt: _a very attractive milf with natural blonde hair having an orgasm on a motorcycle, ecstasy, erotic_  
 2023-06-23
