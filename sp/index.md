@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## Study for [unpublished story](https://aandiron.github.io/unpublished/unseen-horror)
+![study-for-unseen-1](./study-for-unseen-1.jpg "I want you to feel my presense --- the presense of my throbbing cock in your cunt.")   
+Prompt: _very attractive naked college woman, short, curvy, straight dark hair to her shoulders, asleep in bed, something frightening is in bed with her, 1990s dorm room, ominous, middle of the night, pentax k1000_  
+2023-07-02
+
+
 ## More studies for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study-for-tremble-6](./study-for-tremble-6.jpg)
 ![study-for-tremble-3](./study-for-tremble-3.jpg)
