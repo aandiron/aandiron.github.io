@@ -8,6 +8,12 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## Study for [The Great Stone Dragon](https://aandiron.github.io/stories/The-Great-Stone-Dragon_full-draft.html)
+![study-for-dragon-1](./study-for-dragon-1.jpg)  
+Prompt: _a very attractive naked woman, curvy, straight dark hair to her shoulders. A giant dragon made of stone sits next to her. At a drive-in theatere_  
+2023-07-03
+
+
 ## Study for [unpublished story](https://aandiron.github.io/unpublished/unseen-horror)
 ![study-for-unseen-1](./study-for-unseen-1.jpg "I want you to feel my presense --- the presense of my throbbing cock in your cunt.")   
 Prompt: _very attractive naked college woman, short, curvy, straight dark hair to her shoulders, asleep in bed, something frightening is in bed with her, 1990s dorm room, ominous, middle of the night, pentax k1000_  
