@@ -9,7 +9,7 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 ----------------------------------------
 
 ## Study for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
-![study for tremble 5](./study-for-tremble-5.jpg "")  
+![study for tremble 5](./study-for-tremble-5.jpg)   
 Prompt: _a large male ent holding a beautiful working-class woman, erotic, ominous_  
 2023-07-05
 
