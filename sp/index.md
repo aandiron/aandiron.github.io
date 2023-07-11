@@ -8,6 +8,13 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## Studies for [Blood and Sand](https://aandiron.github.io/stories/blood-and-sand.html)
+![study for blood and sand 1](./study-for-desert-1.jpg) 
+![study for blood and sand 3](./study-for-desert-3.jpg)  
+Prompt: _a handsome thin nude man, 38 years old, blood all over his hands and bod, carrying a large machete, dark gray hair, beard, among desert rocks, twilight, ominous_  
+2023-07-11
+
+
 ## Study for [Tremble the Flowering Wood](https://aandiron.github.io/stories/Tremble_the_Flowering_Wood.html)
 ![study for tremble 5](./study-for-tremble-5.jpg)   
 Prompt: _a large male ent holding a beautiful working-class woman, erotic, ominous_  
