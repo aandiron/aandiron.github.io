@@ -17,6 +17,8 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $50 --- **You're wearing a cowboy hat and tight jeans, and nothing else**
 
+* [ ] $40 --- **Your naked back**
+
 * [ ] $50 --- ~~Your beautiful tit in your hand, your cute tongue extended, licking your own nipple~~
 
 * [ ] $15 --- You are wearing a bikini in a recent hot pic
