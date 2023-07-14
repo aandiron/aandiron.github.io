@@ -17,7 +17,7 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $50 --- **You're wearing a cowboy hat and tight jeans, and nothing else**
 
-* [ ] $40 --- Your beautiful back
+* [X] $40 --- Your beautiful back
 
 * [ ] $50 --- **Your _naked_ back**
 
