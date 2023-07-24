@@ -115,13 +115,34 @@ The goal is to compile a body of work, a collection. Like my music collection, I
 
 * [ ] $125 --- You get engaged, buy a wedding dress, and take a topless or otherwise explicit photo showing how badly you want to get fucked on your wedding night.
 
-* [ ] $200 --- We have a hot makeout session together in real life. Only counts if we both get really turned on, and don't do anything about it!
 
-* [ ] $300 --- You tie my hands behind me and give me the lap dance I've always imagined you giving --- plus a special bonus if you can make me cum
+## Total Whore 
+(in-person, real life, manifest-the-fantasies-in-reality)
 
-* [ ] $500 --- you suck me off, in-person in real life
+* [ ] $100 --- We have a long, hot makeout session together in real life. Only counts if we both get really turned on... but don't act on it and we each leave desperately horny
+	* [ ] $50 bonus if you wear something super hot
+	* [ ] $50 bonus if you let me keep your wet panties as a souvenir
 
-* [ ] $1500 --- I get you to whore for me for a whole evening in-person and I can do whatever I want with you --- cum in *all* your holes. (You can be a little drunk --- but not TOO drunk.) $500 bonus if you let me record it.
+* [ ] $150 --- you slowly strip off your outfit in front of me while not letting me touch you.
+	* [ ] $100 bonus if you let me jack off while I watch.
+	* [ ] $100 additional bonus if I can record it.
+
+* [ ] $50 --- suck my balls in your beautiful mouth; leave me wanting more.
+
+* [ ] $100 --- spread your legs, let me get on my knees, and lick your delicious cunt until you cum, twice.
+
+* [ ] $200 --- let me cum on your pretty face and amazing tits while you suck my balls
+
+* [ ] $300 --- you tie my hands behind me and give me the lap dance I've always imagined --- plus a special bonus tip if you can make me cum
+
+* [ ] $500 --- you suck me off with a long, slow, perfectly-executed blowjob, which you are clearly _so_ excited and turned-on by. You make me cum, and you swallow it like it's the best thing you ever tasted.
+	* [ ]  $500 bonus if you let me record it
+
+* [ ] $2000 --- you get on me and ride my cock for as long as you can possibly take it --- both forward and reverse cowgirl (I want to see your titties bouncing above me; I want to watch your ass slide up and down my rock-hard cock)
+	* [ ] $500 bonus if you let me record it
+	* [ ] $50 bonus if you wear a cowboy hat
+
+* [ ] $5000 --- you let me get you pregnant; and you make me your baby-daddy.
 
 ---------------------------------------
 
