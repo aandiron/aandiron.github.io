@@ -8,6 +8,14 @@ A not-for-public-consumption collection of ai images to generate inspiration for
 
 ----------------------------------------
 
+## Studies for [The Woman-Machine](https://aandiron.github.io/stories/the-woman-machine.html)
+![study-for-womanmachine-1](./study-for-womanmachine-1.jpg)
+![study-for-womanmachine-6](./study-for-womanmachine-6.jpg)  
+
+[//]: # (Prompt: _a very attractive milf with natural blonde hair having an orgasm on a motorcycle, ecstasy, erotica_)  
+2023-07-25
+
+
 ## Studies for [Blood and Sand](https://aandiron.github.io/stories/blood-and-sand.html)
 ![study for blood and sand 1](./study-for-desert-1.jpg) 
 ![study for blood and sand 3](./study-for-desert-3.jpg)  
