@@ -17,6 +17,7 @@ These stories also generally attempt to go somewhere that others haven't. There'
   
 
 ## Stories
+* [Daddy, Take the Banana](./stories/banana.md)
 * [Blood and Sand](./stories/blood-and-sand.md) (Banned by Literotica)
 * [The Woman-Machine](./stories/the-woman-machine.md) (And its sister piece: [The Man-Machine](./stories/the_man_machine.md))
 * [The Architect](./stories/a.andiron_The-Architect.md)
