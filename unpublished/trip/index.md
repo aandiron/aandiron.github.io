@@ -7,11 +7,13 @@ title: The Stories of A. Andiron
 
 
 
-# Untitled story
+# (Untitled story)
 
-The dose it too much for my weak soul, but I don't realize that in the beginning. I select a book, _Inferno_, and lay on the couch. But I can't form images in my head. My mind has slipped entirely out into the real world, but the real world is no longer real. The words melt on the page, and there is no "book" there, no images, no ideas.
+The dose is too much for my weak soul, but I did not know that in the beginning.
 
-There's too much light. I stuff cloth into the cavity of a pair of goggles and strap them over my eyes. I lay back and close my eyes behind the blacked out goggles. Somehow the light still seeps in, through the cracks and weak spots of my goggle contraption. It aggravates me. I yank the goggles from my eyes, stuff another layer of cloth in and tighten the straps on my head.
+I select a book, _Inferno_, and lay on the couch. But I can not read, I can not form images in my head. My mind has slipped entirely out into the physical world, but the physical world is no longer _real_. The words melt on the page, and there is no "book" there, no images, no ideas.
+
+There's too much light. I stuff cloth into the cavity of a pair of goggles and strap them over my eyes. I lay back and close my eyes behind the blacked out goggles. Somehow the light still seeps in, through the cracks and the thin spots of my goggle contraption. It aggravates me. I yank the goggles from my eyes, stuff another layer of cloth in, and tighten the straps on my head.
 
 I close my eyes again, and this time I find true darkness. Nothingness and nothing but blackness there. I peer in, focus my eyes. In the darkness, there is color. And from the center of the color, where the dark-color is darkest, I see her emerge, as if she were matter escaping the event horizon and conglomerating together with glowing energy.
 
@@ -19,22 +21,21 @@ I close my eyes again, and this time I find true darkness. Nothingness and nothi
 
 She moves towards me.
 
-She is darkness itself. Pure lust and evil. Her edges don't resolve. She has no edges, no contours, no settled form. She shifts in time to my desires, shaping herself to draw me in. And since she's the only thing there in the blackness, I have no will or power to resist her gravity. I fall towards her.
+She is darkness itself. Pure lust and evil. Her edges don't resolve. She has no edges, no contours, no settled form. She shifts in time to my desires, shaping herself to draw me in. And since she's the only thing that exists there in the blackness, I have no will or power to resist her gravity. I fall towards her.
 
-She opens herself towards me. Now she's pale and glowing in the darkness. Her form takes on curves that reflect my cravings. Tits form into the palms of my hands. Her lips fill and spread and she kisses me. She presses herself against me, and I can feel her cold naked belly pressing against my hard cock.
+She opens herself towards me. Now she's pale and glowing in the darkness. Her form takes on curves that reflect my cravings. Tits form into the palms of my hands. Her lips fill and spread and she kisses me. She presses herself against me, and I can feel her cold naked belly pressing against my hard cock. She is beautiful and frightening, meek and destructive.
+
+![acidtrip4.png](./acidtrip4.png "She's pale and glowing in the darkness. Her form takes on curves that reflect my cravings.")
+
+I slide my hands down her back, and her ass curves into my hands. I pull her hard against me, feeling the heaviness of her gravity, like I will never be able to separate myself from her again. She's hot and dark and slippery and writhing in my grip.
+
+I know you think this is all in my head. But it's the opposite. There's _nothing_ in my head. It is all out there. I have left my head, my mind, my body behind. I'm aware only of the exterior physical world and all the details and resolution that make it up. And the only thing in that physical world is her. Make no mistake, she is nothing _but_ real.
 
 ![acidtrip2.png](./acidtrip2.png)
 
-I slide my hands down her back, and her ass curves into my hands. I pull her hard against me, feeling the heaviness of her gravity, like I will never be able to separate myself from her again. She's hot and evil and writhing in my grip.
-
-I know you think this is all in my head. But it's the opposite. There's _nothing_ in my head. It is all out there. I have left my head, my mind, my body behind. I'm aware only of the exterior physical world and all the details and resolution that make it up. And right at the moment the only thing in that physical world is her. But make no mistake, she is nothing _but_ real.
+She lowers herself to her knees, and takes the shaft of my swollen purple cock in her small hand. She looks up at me and says, "I want to choke on you," and slips her soft lips over the tip. I hold her head in my hands and watch her pale face sliding up and down the length of my cock. Her hand gloved in black liquid slips between her thighs and I watch her make herself cum with my cock in her mouth.
 
 ![acidtrip3.png](./acidtrip3.png)
-
-She lowers herself to her knees, and take my swollen purple cock between her lips. She takes my cock in her small hand. She looks up at me and says, "I want to choke on you."
-I hold her head in my hands and watch her pale face sliding up and down the length of my cock. Her hand gloved in black liquid slips between her thighs and I watch her make herself cum with my cock in her mouth.
-
-![acidtrip4.png](./acidtrip4.png)
 
 I so desperately want to feel her mouth with my cum. But, as I said, I have no presence inside my body. I cannot feel my cock at all, despite the fact that it seems to be raging and throbbing with pleasure. I can see it, but I can't feel it. All my attention is on the exterior physical world, and since that world is entirely made up of her, my attention is all on her. I decide that my mission is to forget myself and simply make her cum as many times as I can.
 
