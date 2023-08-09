@@ -35,13 +35,13 @@ I know you think this is all in my head. But it's the opposite. There's _nothing
 
 She lowers herself to her knees, and takes the shaft of my swollen purple cock in her small hand. She looks up at me and says, "I want to choke on you," and slips her soft lips over the tip. I hold her head in my hands and watch her pale face sliding up and down the length of my cock. Her hand gloved in black liquid slips between her thighs and I watch her make herself cum with my cock in her mouth.
 
-![acidtrip3.png](./acidtrip3.png)
+![acidtrip5.png](./acidtrip5.png)
 
 I so desperately want to feel her mouth with my cum. But, as I said, I have no presence inside my body. I cannot feel my cock at all, despite the fact that it seems to be raging and throbbing with pleasure. I can see it, but I can't feel it. All my attention is on the exterior physical world, and since that world is entirely made up of her, my attention is all on her. I decide that my mission is to forget myself and simply make her cum as many times as I can.
 
 She pushes me back, and lowers herself onto my cock. She's wet. So wet that she seems to be spurting liquid. Perhaps she's _made_ of liquid, I cannot tell for sure. My hands slip along the cool round edge of her ass, and then my hands fall into her ass, for it too is liquid. My hands are consumed, and she cums again, slipping her white body up and down along my cock.
 
-![acidtrip5.png](./acidtrip5.png)
+![acidtrip3.png](./acidtrip3.png)
 
 Now I push her back without withdrawing myself. I step back and watch as my cock slips deep into her and her fingers find her clit. She cums with a wet spurting orgasm that washes over her first, and then all over me.
 
