@@ -31,7 +31,7 @@ I slide my hands down her back, and her ass curves into my hands. I pull her har
 
 I know you think this is all in my head. But it is the opposite. There is _nothing_ in my head. It is all out there. I have left my head, my mind, my body behind. I am aware only of the exterior physical world and all the details and resolution that it is made of. And the only thing in that physical world is her. Make no mistake, she is nothing _but_ real.
 
-![acidtrip2.png](./acidtrip2.png)
+![acidtrip2.png](./acidtrip2.png "She is hot and dark and slippery and writhing in my grip.")
 
 She lowers herself to her knees, and takes the shaft of my swollen purple cock in her small hand. She looks up at me and says in an ethereal voice, "I want to choke on you," and slips her soft lips over the tip. I hold her head in my hands and watch her pale face sliding down the length of my cock. Deeper and deeper my cock falls down her bottomless throat. It seems like it will stretch on forever towards infinity. 
 
