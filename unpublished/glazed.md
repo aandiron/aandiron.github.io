@@ -5,6 +5,8 @@ title: The Stories of A. Andiron
 
 ## Glazed
 
+![glazed](./glazed.jpg)
+
 Steel bowl. Powdered sugar. Whisk. Pure vanilla extract. Rubber spatula. I touch my thumb to each of my fingers.
 
 'You can remove your clothes and find a comfortable way to sit on that stool there. Don't slouch, I need you to be upright, in something of a statuesque pose. It's important that you to find a position you can hold without moving, or it won't come out right.
