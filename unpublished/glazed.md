@@ -3,9 +3,9 @@ layout: default
 title: The Stories of A. Andiron
 ---
 
-## Glazed
-
 ![glazed](./glazed.jpg)
+
+## Glazed
 
 Steel bowl. Powdered sugar. Whisk. Pure vanilla extract. Rubber spatula. I touch my thumb to each of my fingers.
 
