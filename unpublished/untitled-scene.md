@@ -4,28 +4,31 @@ title: The Stories of A. Andiron
 ---
 
 # (Untitled Scene)
-
-He towered over her. She looked up at him, and his eyes caught hers.
+  
+  
+She looked up at him, and his eyes caught hers. He towered over her. 
 
 "Do you trust me?"
 
 She nodded, but only after a clear moment of hesitation.
 
-His massive, heavy arm extended quickly towards her, stiff and hard. His hand spread open. His fingers closed around her throat. She could feel the muscles in each of them, tightening with an unstoppable force, like the tide coming in.
+His massive, heavy arm extended quickly towards her, stiff and hard. His hand spread open. His fingers closed around her throat. She could feel the muscles in each of his fingers, tightening with an unstoppable force, like the tide coming in.
 
-His eyes were still locked with her's. He breathed through his nose, the nostrils flaring and contracting with each long, controlled breath.
+His eyes remained locked with her's. He breathed through his nose, the nostrils flaring and contracting with each long, controlled breath.
 
-Then he lifted her. By the neck. Her arms flailed as she tried to keep her balance her own, but in a moment she was up on tip-toe and he had complete control of her entire body.
+Then he lifted her. By the neck. Her arms flailed as she tried to keep control of her balance, but in a moment she was up on tip-toe and he commanded her entire body, like she was little more than a marionette.
 
-Two thick fingers on his free hand spread her thighs apart, and she could feel the rough skin crackling against the soft, sensitive skin between her legs. The tips of his fingers found the front of her pussy, and played delicately across her clit.
+His free hand moved up between her legs, and two thick fingers spread her thighs apart. She could feel the rough skin crackling against the soft, sensitive skin of her inner thighs. The tips of his fingers found the front of her pussy, and pressed delicately against her clit.
 
-The muscles in his brawny arm tensed and the tattoos on his arm crawled towards her. She saw blackness at the edge of her vision, but the waves of pleasure his fingers against her clit were creating made her focus. She stared up at his face. 
+The muscles in his brawny arm tensed and the tattoos on his arm crawled toward her neck. She saw blackness at the edge of her vision. But the waves of pleasure his fingers created with their oh-so-light touch of her clit made her focus. She stared up at his face. 
 
-She grabbed his thick arm that curved up between her legs and tried to pull his hand harder against herself, desperate to feel more pressure from his fingers. But he took his hand away and shook her off. 
+She grabbed hist thick forearm where it curved up between her legs with both of her small hands and tried to pull his hand harder against her pussy. She wanted more of hist touch, not this gentle caress. She wanted to feel those thick fingers inside her.
+
+But he took his hand away and shook her off. 
 
 "You touch me again, you get nothing," he said.
 
-She tried to thrust her hips downward But when she did so, he lifted her slightly higher and she lost any purchase. She whimpered, suffered on the very edge of his touch and wanted nothing more than for him to make her cum.
+She tried to thrust her hips downward, but when she did so, his grip tightened around her throat, and he lifted her slightly higher so she was now barely touching the floor. She whimpered, suffering on the very edge of his touch and wanting nothing more than for him to make her cum.
 
 
 
