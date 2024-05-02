@@ -5,7 +5,7 @@ title: The Stories of A. Andiron
 
 ## I Want to be Your Daddy
 
-He was late getting to the restaurant and she was already seated, glancing over the menu when he came in. He identified her immediately and pointed her out to the hostess, who let him proceed to her table unaccompanied. She smiled when she saw him coming toward her, and when he leaned over to give her a little hug, she kissed his cheek. He quickly caught a glance of the curve disappearing down between her low-cut blouse. She had always like to show off.
+He was late getting to the restaurant and she was already seated, glancing over the menu when he came in. He identified her immediately and pointed her out to the hostess, who let him proceed to her table unaccompanied. She smiled when she saw him coming toward her, and when he leaned over to give her a little hug, she kissed his cheek. He caught a glance of the curve disappearing down between her low-cut blouse. She had always like to show off.
 
 "God, how long has it bee? 15 years?"
 
@@ -41,11 +41,11 @@ She lowered her face and caught his eye. "But... what?"
 
 "Ha. Too bad I married a better man than you."
 
-"No, not like that. I'm not saying I regret that we never got together seriously. I'm just saying that just the idea of getting you pregnant... specifically you."
+"No, not like that. I'm not saying I regret that we never got together seriously. I'm just saying that just the idea of getting you pregnant... specifically you... has always been appealing to me."
 
 "Why is that, you think?"
 
-"I don't know. It's hard to articulate. Maybe something about how you never took me seriously as a relationship prospect. But maybe something more physical and from deeper in the evolutionary brain than than. Something about seeing your flat belly, your curvy hips, your breasts... and wanting to do the ultimate kind of filling you up."
+"I don't know. It's hard to articulate. Maybe something about how you never took me seriously as a relationship prospect. But maybe something more physical and from deeper in the evolutionary brain than that. Something about seeing your flat belly, your curvy hips, your breasts... and wanting to execute the ultimate kind of filling you up."
 
 "But you just said you don't want kids."
 
@@ -61,7 +61,7 @@ She laughed at him. "That's... disturbing. Why are you even telling me this?"
 
 The waiter came and they ordered. They got off on talking about their work, real estate, weather, all the detritus of small talk and old friends catching up. After their plates were cleared, he asked her if she'd like another drink and they ordered cocktails from the multi-page list on the menu.
 
-When the drinks came she stared down into hers, and stirred the ice. "Actually, it's been harder than I expected to get pregnant. I thought it would just happen. But I guess I'm getting into the age range where they start to refer to you as a "geriatric mother," and now I find myself tracking cycles and nagging my husband about his underwear. It sucks, honestly. I wish it was just fun and I didn't have to think about it to make it happen. I'm sure I could have gotten pregnant any weekend when I was a teenager."
+When the drinks came she stared down into hers, and stirred the ice. "Actually, it's been harder than I expected to get pregnant. I thought it would just happen. But I guess I'm getting into the age range where they start to refer to you as a "geriatric mother," and now I find myself tracking cycles and nagging my husband about his underwear. It sucks, honestly. I wish it was just fun and I didn't have to think about it to make it happen. I'm sure I could have gotten pregnant on any given weekend when I was a teenager."
 
 He laughed. "Well, give me a chance then. I'll get you pregnant lady!"
 
@@ -75,13 +75,13 @@ He laughed. "Well, give me a chance then. I'll get you pregnant lady!"
 
 "No."
 
-"Yes, obviously. So, you let me fuck you, you know, just give me a _chance_ to get you pregnant, and I get to live out my fantasy, and you get to have the kid you want."
+"_Yes_, obviously. So, you let me fuck you, you know, just give me a _chance_ to get you pregnant, and I get to live out my fantasy, and you get to have the kid you want."
 
 "No! You're kidding right?"
 
 "I'm entirely serious. How about I throw in $10,000 bucks? You could put it toward the kid's college fund."
 
-"God... no!" Her eye caught his again. There was the edges of a smile at the corners of her lips.
+"God... no!" Her eye caught his again. The edges of a smile appeared at the corners of her lips.
 
 "$20,000. That's my final offer."
 
@@ -97,7 +97,9 @@ He stared at her.
 
 He grinned as he sipped his drink.
 
-"What? You're begging me for this thing, I grant it to you, and now you have nothing to say? You weren't just fucking with me, were you?"
+"What? You're begging me for this thing, I grant it to you, and now you have nothing to say? You weren't just fucking around with me, were you?"
+
+[//]: # (EDITED TO HERE)
 
 He swallowed. "Well, No. I just never expected you to actually accept."
 
