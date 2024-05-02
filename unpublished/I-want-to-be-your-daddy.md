@@ -5,33 +5,6 @@ title: The Stories of A. Andiron
 
 ## I Want to be Your Daddy
 
---------------------------------------------------------------------------------
-Summary
--------
-
-They meet at a restaurant for lunch. Polite small talk -- they haven't seen each other in years. She says she has been trying to get pregnant with her husband. She asks him if he thinks he'll have kids. He says he feels more like an uncle than a dad. But then hesitates, and says he does feel some desire to get a lady pregnant. Are you saying you would want to get me pregnant? She asks. He waffles. Eventually admits it, yes. She laughs at him and says in your dreams.
-
-He offers to pay her. She laughs at him again. Then he raises the offer: $20k. She accepts. She says something to justify it, like: I've always believed family isn't about genetics. Also she's getting older, and will do anything to increase the chances of getting pregnant. It's not easy at her age, you know. Also: I'm not guaranteeing you a kid. You are just buying a chance to compete. I'm still going to try to get pregnant with my husband at the same time.
-
-He suggests they start immediately. They get a hotel. hot fucking scene. Fuck me harder! Pound your cock into me, cum deep up inside me. Give me a baby! You want to win this contest don't you?
-
-Two weeks later, she texts him a picture of a negative pregnancy test. "want to try again tonight?" they meet in a hotel again. He asks her to suck his cock. She says no. This is a business transaction only. But then she has an orgasm while riding him. He laughs at her and throws back her business transaction comment. She says she believes having and orgasm helps get pregnant.
-
-Two weeks after that, She texts him to tell him she's pregnant. You sure it's mine? I'm sure it's yours.
-
-Six months later, she sends him a naked photo of herself, seen from the side, her hand under her distended belly. She is radiant and beautiful. He asks to meet up with her.
-
-He asks to touch her belly. Then he touches her tits. She tells him no. The deal was for pregnancy.I didn't realize how beautiful you would be when you were pregnant with my child. He offers her more money. She accepts (college fund).
-
-He lays her on the bed, spreads her legs, and fucks her, watching her tits and belly bounce up and down as he pounds her. He puts his hand between her legs, his thumb on her clit. She cums against his hand as his dick slips in and out of her in long strokes.
-
-When they are done she tells him: no more. But what if I want to suck your milky titties after the kid is born? She laugh at him. Then winks at him as she walks out the door.
-
-
---------------------------------------------------------------------------------
-First draft
------------
-
 He was late getting to the restaurant and she was already seated, glancing over the menu when he came in. He identified her immediately and pointed her out to the hostess, who let him proceed to her table unaccompanied. She smiled when she saw him coming toward her, and when he leaned over to give her a little hug, she kissed his cheek. He quickly caught a glance of the curve disappearing down between her low-cut blouse. She had always like to show off.
 
 "God, how long has it bee? 15 years?"
