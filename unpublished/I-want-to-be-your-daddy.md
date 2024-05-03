@@ -7,7 +7,7 @@ title: The Stories of A. Andiron
 
 He was late getting to the restaurant and she was already seated, glancing over the menu when he came in. He identified her immediately and pointed her out to the hostess, who let him proceed to her table unaccompanied. She smiled when she saw him coming toward her, and when he leaned over to give her a little hug, she kissed his cheek. He caught a glance of the curve disappearing down between her low-cut blouse. She had always like to show off.
 
-"God, how long has it bee? 15 years?"
+"God, how long has it bee? Fifteen years?"
 
 "At least," he said as he sat down across from her and drew himself closer to the table. "It's so nice to see you though!"
 
@@ -233,7 +233,7 @@ That was the entirety of that conversation. Later, when he would ask how she was
 
 *****
 
-So it was half a year later when she sent him a photo of herself. Naked except for panties, kneeling on the bed, her hands under her belly and her belly extending forward beneath her swollen breasts. Her face is radiant and beautiful. 
+So it was half a year later when she sent him a photo of herself. Naked and kneeling on the bed, her hands under her belly and her belly extending forward beneath her swollen breasts. Her face is radiant and beautiful. 
 
 <img style="border:1px solid #000000;" alt="" src="./20240503_preggers4.png" height=400px>
 
@@ -255,7 +255,7 @@ He stood and pulled her chair out for her to assist her in sitting down.
 
 He smiled. "Well, thanks. I do appreciate the update."
 
-They plowed through their dinner buoyed on small-talk about the quality of the food, all the strange things pregnancy does to the body, and how she felt more attractive now than she ever had in her life. He chose not to have a drink to keep things even with her.
+They plowed through their dinner buoyed on small-talk about the quality of the food, all the strange things pregnancy does to the body, and how she felt more attractive now than she ever had in her life. He chose not to have a drink to keep things level between them.
 
 She offered to pick up the bill, and he let her. Then she offered him a ride home, since he had come by train.
 
@@ -263,17 +263,19 @@ She unlocked the car and let him in. She stretched the seatbelt out under her be
 
 "Of course I do. But I didn't want to ask."
 
-She took his hand and placed his palm against her belly, she guided it down over the bump of it. She found the spot and held him there. They were both silent. Then, "oh, did you feel it kick?"
+She took his hand and placed his palm against her belly, she guided it down following the curve. She found the spot and held his hand there. They were both silent. Then, "oh, did you feel it kick?"
 
 "I did!" he grinned at her, his eyes locked on hers. Then he leaned over and kissed her.
 
 And she kissed him back.
 
-His hand slid up her belly, and over her full breast. His fingers gently circled her erect nipples through her halter top. Then she pushed him away.
+His hand slid up her belly, and over her full breast. His fingers gently circled her erect nipples through her halter top. 
+
+She pushed him away.
 
 "Stop. Our business transaction is complete. Tonight was just a report-out, something like a stock-holders meeting."
 
-"I know. It's just that I didn't expect you would be so beautiful... carrying my child. And now, it's like I can't look away from you."
+"I know. It's just that I didn't expect you would be so beautiful... carrying my child. And now, it's like I can't look away from you. You're the most beautiful woman I've ever known."
 
 She broke eye contact with him and looked down.
 
@@ -297,11 +299,11 @@ It was a weekend, so the hotel that he now thought of as 'their' hotel was mostl
 
 "So what exactly do I get for my $7000?" he asked.
 
-She grinned at him, and pushed him back so he sat on the bed. She stepped back, and turned, then turned again, showing him her body. She slipped the hem of her shirt up, so he could see her belly with his child contained in it, and then turned again so he could get a full view. Then she faced away from him, and bent over. She hooked her thumbs over the waist of her pants, and slid them over her ass and down, so he was looking directed at her naked, wet pussy.
+She grinned at him, and pushed him back so he sat on the bed. She stepped back, and turned, then turned again, showing him her body. She slipped the hem of her shirt up, so he could see her belly with his child contained in it, and then turned again so he could get a full view. Then she faced away from him, and bent over. She hooked her thumbs over the waist of her pants, and slid them over her ass and down, so he was looking directly at her naked, wet pussy.
 
 She turned to face him, and got on her knees. She undid his fly and pulled his throbbing cock out. She licked her full lips and slipped them over the swollen head of his cock. She sucked his dick right up to the edge of cumming. She could taste just the tiniest bit of his cum on her tongue.
 
-"Fuck. I forgot you were so good at that!"
+"Fuck. I forgot you were so good at that!" he gasped.
 
 She pulled her head back and grinned at him, a long wet line slipping transparently from her lower lip. She wiped it on the back of her hand. "Don't you want to fuck me though? Don't you want to fuck this little girl you filled up with your baby?"
 
@@ -309,15 +311,15 @@ He lifted her, and (gently) threw her onto the bed. He pulled her top up, so he 
 
 "Come on. Fuck me with that big hard cock of yours my sweet baby-daddy."
 
-He grabber her ankles and spread her legs wide. His cock fell wetly into her, gliding like kite caught on a thermal. She slipped her ass off the edge of the bed and smashed against her. He watched her whole body wrenched up and down by his thrusting hips, his cracking cock. Her tits bounced back and forth. The bulge of her belly shifting up and down.
+He grabber her ankles and spread her legs wide. His cock fell wetly into her, gliding like kite caught on a thermal. She slipped her ass off the edge of the bed and he smashed against her. He watched her whole body wrenched up and down by his thrusting hips, his cracking cock. Her tits bounced back and forth. The bulge of her belly swung up and down.
 
-He slid his hands down the insides of her legs, and cupped her belly on either side. He held her pregnant belly gently in his palms, and then he knew he was about to cum. He pulled his cock from her and gripped it tightly in his fist, With the thumb of his other hand, he rubbed her clit vigorously until she was cumming and he was too. Cum spilled in a long stream from the tip of his cock and slide down the curve of her belly. 
+He slid his hands down the insides of her legs, and cupped her belly on either side. He held her pregnant belly gently in his palms, and then he knew he was about to cum. He pulled his cock from her and gripped it tightly in his fist, With the thumb of his other hand, he rubbed her clit vigorously until she was cumming, and he was too. Cum spilled in a long stream from the tip of his cock and slid down the arc of her belly. 
 
 *****
 
 When they were dressed, he accompanied her to the door. She kissed him slowly, and wetly. And then said, "That's it. No more." And she turned to leave.
 
-He took her arm. "But what if I want to suck on your fully milky tits after the kid is born?"
+He took her arm. "But what if I want to suck on your full, milky tits after the kid is born?"
 
 She laughed, and lifted his hand from her arm. She winked at him, and walked out.
 
