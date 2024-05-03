@@ -99,8 +99,6 @@ He grinned as he sipped his drink.
 
 "What? You're begging me for this thing, I grant it to you, and now you have nothing to say? You weren't just fucking around with me, were you?"
 
-[//]: # (EDITED TO HERE)
-
 He swallowed. "Well, No. I just never expected you to actually accept."
 
 "There's a lot you don't know about me."
@@ -109,21 +107,21 @@ He swallowed. "Well, No. I just never expected you to actually accept."
 
 "Oh, _now_ you have morals about it?"
 
-"It's not that. It's that I do actually value you as a friend. I'm not some stupid 18 year old boy who will say anything just to get in your panties. I want to fuck you. I want to get you pregnant. Badly enough to pay you a serious amount of money for the chance... But it isn't worth it if you will end up hating me later."
+"It's not that. It's that I do actually value you as a friend. I'm not some stupid eighteen year old boy who will say anything just to get in your panties. I want to fuck you. I want to get you pregnant. Badly enough to pay you a serious amount of money for the chance... But it isn't worth it if you will end up hating me later."
 
 "Not gonna happen. For one thing, your concern there suggests that I don't know myself well enough to make this decision. Let me assure you, I do."
 
 "What about your husband? What if he ends up raising another man's child?"
 
-"A lot of couples believe that pregnancy is some kind of blessing of their relationship by God or the universe or something. They seem to feel that if they can't have a kid from their own genetic material, then maybe God or the universe or whatever doesn't approve of their family. Fuck those people. A family can be made by any group of people. Family is bigger than genetics. I don't care for a minute if my baby is genetically mine, or my husband's, or anyone else's. That's not the point. The point is to create a family from whatever building blocks are available. I'm committed to my husband, but I'm not sure any longer that he will be able to give me a child. That's fine. If he can't, if _you_ can't, We'll adopt. I have no problem with that. But since you offered to help out here, I'm genuinely going to take you up on it. Besides, you're quite handsome and smart. You're almost as good a source for genes as my husband. But now... do you _actually_ have the balls --- and the money --- to go through with it?"
+"A lot of couples believe that pregnancy is some kind of blessing of their relationship by God or the universe or something. They seem to feel that if they can't have a kid from their own genetic material, then maybe God or the universe or whatever doesn't approve of their family. Fuck those people. A family can be made by any group of people. Family is bigger than genetics. I don't care for a minute if my baby is genetically mine, or my husband's, or anyone else's. That's not the point. The point is to create a family from whatever building blocks are available. I'm committed to my husband, but I'm not sure any longer that he will be able to give me a child. That's fine. If he can't, if _you_ can't, we'll adopt. I have no problem with that. But since you offered to help out here, I'm genuinely going to take you up on it. Besides, you're quite handsome and smart. You're almost as good a source for genes as my husband. But now... do you _actually_ have the balls --- and the money --- to go through with it?"
 
-He laughed. "You said I don't know you, but I know you well enough to believe you when you lay it out like that... in a lot of ways you haven't changed at all! Yes. I was totally serious. I'm in. When do we start?"
+He laughed. "You said I don't know you, but I know you well enough to believe you when you lay it out like that... in a lot of ways you haven't changed at all. Yes. I was totally serious. I'm in. When do we start?"
 
-"If you have the money, we'll start tonight. Oh, you're also paying for the hotel room right?"
+"If you have the money, we'll start tonight. Oh, you're also paying for the hotel room, right?"
 
 "I am a gentleman, my lady."
 
-He pulled out his phone and transferred the entire amount to her in a single transaction. It was most of his emergency on-hand cash.
+He pulled out his phone and transferred the entire amount to her in a single transaction. It consumed most of his emergency on-hand cash.
 
 *****
 
@@ -131,11 +129,11 @@ There was a nice hotel just a few blocks from the restaurant. He paid the extra 
 
 He tried to kiss her in the elevator.
 
-"No. Remember this is purely a business transaction. Don't get all touchy-feely on me."
+She pushed him back. "No. Remember this is purely a business transaction. Don't get all touchy-feely on me."
 
-In the room, she had him turn the lights out and raise the shades so she could admire the view. Then she went into the bathroom and started running the water in the shower. She left the door open. She undressed and stepped into the shower.
+In the room, she had him turn the lights out and raise the shades so she could admire the lights of the city. Then she went into the bathroom and started running the water in the shower. She left the door open. She undressed and stepped into the shower.
 
-She called to him, "What are you waiting for now, are you going to join me?"
+She called to him, "what are you waiting for, are you going to join me or not?"
 
 He was in the shower with her in a matter of a minute.
 
@@ -159,9 +157,9 @@ He almost came right then. He pulled his cock out and it throbbed above her puss
 
 "Just give me a second!" He breathed slowly, admiring her naked body spread before him. 
 
-He wrapped his mind around the fact that she wanted him to cum inside her. To get her pregnant. So fucking hot. He plunged back into her.
+His mind lingered on the fact that she wanted him to cum inside her. To get her pregnant. So fucking hot. He plunged back into her.
 
-"Yes. That's it! Fuck me deep. Fuck me hard!"
+"Yes. That's it! Fuck me deep. Fuck me hard! I want you to be a daddy!"
 
 He slipped his cock in and out of her in long, wet strokes. Then pulled out again, just on the edge of cumming. He flipped her over, and, hands on her hips, lifted her to her knees on the bed.
 
@@ -169,15 +167,15 @@ He slipped his cock in and out of her in long, wet strokes. Then pulled out agai
 
 He grabbed her hips and pulled her back, he thrust his hips against hers and her ass arrived against his taught belly with a resounding slap. He drove his dick into her harder.
 
-She looked back over her shoulder at him. "Cum in me. Cum deep inside me. Give me a baby. You do realize this is a contest between you and my husband, right? You want to win, don't you? You want it to be your baby, right? Show me how much you want to win! Fill me full of cum!"
+She looked back over her shoulder at him. "Cum in me. Cum deep inside me. Give me a baby. You do realize this is a contest between you and my husband, right? You want to win, don't you? You want it to be your baby, right? Show me how much you want to win! Fill me full of your hot cum!"
 
-That was too much. He pulled her back once more and when he was as deep inside her as he could get, he held himself there as he orgasmed. The sensation was overwhelming. He doubled over, her warm wet back against his chest. But he held himself deep inside her as his cum pumped up into her.
+That was too much. He pulled her back once more and when he was as deep inside her as he could get, he held himself there as he orgasmed. The sensation was overwhelming. He doubled over, her warm, wet back against his chest. But he held himself deep inside her as his cum pumped up into her.
 
 *****
 
 Two weeks later his phone buzzed and there was a photo from her showing a negative pregnancy test. A few minutes later she sent a text:
 
-**Want to try again tonight? Maybe same hotel as last time?**
+_Want to try again tonight? Maybe same hotel as last time?_
 
 He managed to get the same room at the hotel, with the view of the river from high up. He was sitting on the bed with his shoes off scrolling on his phone when he heard her knock at the door.
 
@@ -185,7 +183,7 @@ He managed to get the same room at the hotel, with the view of the river from hi
 
 She stepped in, and locked the door behind her. This time she was wearing a shorter dress made of thin material, and shoes with heels that were a bit higher. Just slightly slutty.
 
-She smiled at him and he tossed is phone aside. He stood and moved towards her. He grabbed her and threw her up against the floor-to-ceiling windows. He gripped her upper arms in his fists as he kissed her, leaning into her, feeling her body forced against him as he crushed her against the glass.
+She smiled at him and he tossed his phone aside. He stood and moved towards her. He grabbed her and threw her up against the floor-to-ceiling windows. He gripped her upper arms in his fists as he kissed her, leaning into her, feeling her body forced against him as he crushed her against the glass.
 
 "You're already hard, are you?"
 
@@ -193,7 +191,7 @@ He let her arms free and her hands went downward and undid his pants without her
 
 "I want you to suck my cock." 
 
-"Ha," she laughed --- a genuine laughed --- she thought the suggestion funny. "No. Not at all. Not ever. This is a business transaction only. If it's not working toward getting me pregnant, we're not doing it."
+"Ha," she laughed --- genuinely laughed. She thought the suggestion funny. "No. Not at all. Not ever. This is a business transaction only. If it's not working toward getting me pregnant, we're not doing it."
 
 He sighed. 
 
@@ -201,15 +199,15 @@ He sighed.
 
 He put his hand between her thighs and slipped it up under her dress. She wasn't kidding, she was soaking wet. He lifted her dress and admired her perfect ass as his cock slid into her. He fucked her like that against the window, sucking her ear as he noisily moaned because he could barely keep from cumming.
 
-He leaned back, and slipped the straps down her shoulders. He freed her breasts from her bra, and then proceeded to fuck her hard up against the window, flattening her tits against the glass. The light by the bed was still on --- anyone who happened to look up would certainly see them fucking.
+He leaned back, and slipped the straps down her shoulders. He freed her breasts from her bra, and then ground her hard up against the window, flattening her tits against the glass. The light by the bed was still on --- anyone who happened to look up from the street below would certainly see them fucking.
 
-Before he came, she pushed him back, hands on flat against his belly. "Get on the bed," she said.
+Before he could cum, she pushed him back, hands on flat against his belly. "Get on the bed," she said.
 
 He lay back, breathing heavily, his dick throbbing with his pulse, glistening with the wetness from her pussy. She straddled him and took his cock in her small hand, and guided it into her. As it slipped, inch-by-inch, into her, he arched his back and moaned. She sucked in air through her teeth.
 
-And then she was riding his cock, her went cunt slipping up and down, her hips rolling back and forth. She forced herself as far down on his cock as she could get, and rubbed her clit against his body. Her tits bounced in the air above him, until he reached up and grabbed them. He twisted her nipples between her fingers.
+And then she was riding his cock, her wet cunt slipping up and down, her hips rolling back and forth. She forced herself as far down on his cock as she could get, and played her clit against his body. Her tits bounced in the air above him, until he reached up and grabbed them. He twisted her nipples between her fingers.
 
-She started to cum. Seeing her orgasm made him cum, and she fucked him harder. She arched her head back and grabbed his hands on her tits and screamed as her orgasm washed over her in one wave, then another, then a third.
+She started to cum. Seeing her orgasm made him cum, and that made her fuck him faster. She arched her head back and grabbed his hands on her tits and screamed as her orgasm washed over her in one wave, then another, then a third.
 
 She collapsed next to him, wet with sweat and breathing heavily.
 
@@ -225,19 +223,23 @@ She collapsed next to him, wet with sweat and breathing heavily.
 
 Two weeks after that he received another image of a pregnancy test from her, this time showing positive.
 
-**Congratulations. You win. You're a father.**
+_Congratulations. You win. You're a father._
 
-**Are you sure it's mine?**
+_Are you sure it's mine?_
 
-**Trust me, it's yours. ;)**
+_Trust me, it's yours. ;)_
 
-That was the entirety of that conversation. Later, when he would ask how she was doing, she would respond with a thumbs-up emoji. Further questions she ignored. He didn't really hear from her again for six more months. 
+That was the entirety of that conversation. Later, when he would ask how she was doing, she would respond with a thumbs-up emoji. Further questions she ignored. He didn't hear anything substantive from her for six more months. 
 
 *****
 
-So it was half a year later when she sent him a photo of herself. Naked except for panties, kneeling on the bed, one hand against her back and her belly extending forward beneath her swollen breasts. Her face is radiant and beautiful. A minute later, she texted:
+So it was half a year later when she sent him a photo of herself. Naked except for panties, kneeling on the bed, her hands under her belly and her belly extending forward beneath her swollen breasts. Her face is radiant and beautiful. 
 
-**Want to meet for dinner? I feel like you have a right to see what you have done to me.**
+<img style="border:1px solid #000000;" alt="" src="./20240503_preggers4.png" height=400px>
+
+A minute later, she texted:
+
+_Want to meet for dinner? I feel like you have a right to see what you have done to me._
 
 Of course he did. That evening he found himself waiting for her at the restaurant. When she came in she was wearing sensible flats, loose stretchy pants, and a form-fitting halter top that showed off her belly. Somewhat less slutty.
 
