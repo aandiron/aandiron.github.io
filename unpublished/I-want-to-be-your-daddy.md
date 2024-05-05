@@ -235,7 +235,7 @@ That was the entirety of that conversation. Later, when he would ask how she was
 
 So it was half a year later when she sent him a photo of herself. Naked and kneeling on the bed, her hands under her belly and her belly extending forward beneath her swollen breasts. Her face is radiant and beautiful. 
 
-<img style="border:1px solid #000000;" alt="" src="./20240503_preggers4.png" height=400px>
+[//]: # (<img style="border:1px solid #000000;" alt="" src="./20240503_preggers4.png" height=400px>)
 
 A minute later, she texted:
 
