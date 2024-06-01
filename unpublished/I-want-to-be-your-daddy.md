@@ -7,7 +7,7 @@ title: The Stories of A. Andiron
 
 He was late getting to the restaurant and she was already seated, glancing over the menu when he came in. He identified her immediately and pointed her out to the hostess, who let him proceed to her table unaccompanied. She smiled when she saw him coming toward her, and when he leaned over to give her a little hug, she kissed his cheek. He caught a glance of the curve disappearing down between her low-cut blouse. She had always like to show off.
 
-"God, how long has it bee? Fifteen years?"
+"God, how long has it been? Fifteen years?"
 
 "At least," he said as he sat down across from her and drew himself closer to the table. "It's so nice to see you though!"
 
