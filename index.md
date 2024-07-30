@@ -29,19 +29,4 @@ These stories also generally attempt to go somewhere that others haven't. There'
 * [Tremble the Flowering Wood](./stories/Tremble_the_Flowering_Wood.md)
 * [Erotica to Make Your Lover Wonder About You](./stories/make-your-lover/) (A collection of 12 stories)
 
-#### (Stories under development)
-* Unseen Horror
-* No words
-
-
-## Other things
-* [Links](links/links.md): to interesting writing and other things by other people.
-* [Bits and Pieces](bits/bits-and-pieces.md): various shorter and less-developed pieces.
-
-
-## Mailing list
-Fear not the spam. My list isn't some vast database of contacts, it's more like a friends-and-family thing. Besides, my productivity is so low, you'll probably wish to see more emails from me, not fewer. 
-* Email me and ask to be added: [a.andiron@protonmail.com](mailto://a.andiron@protonmail.com) (No names or anything other than your email address required.)
-
-  
 
