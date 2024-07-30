@@ -1,4 +1,0 @@
-# Block Adsbot (requires specific listing) and all others (*) from index-disabled
-User-agent: *
-User-agent: AdsBot-Google
-Disallow: /index-disabled*

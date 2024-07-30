@@ -1,1 +1,0 @@
-../stories/banana.md
