@@ -1,9 +1,13 @@
+---
+layout: default
+title: The Stories of A. Andiron
+---
 
 
-# The Potential
+## The Potential
 
 
-## Act I --- On A Single Evening
+### Act I --- On A Single Evening
 
 
 They had only fucked the one time, though they had known each other for years. 
@@ -98,7 +102,7 @@ She pulled her head free, saliva strung from her lower lip to the tip of his coc
 
 
 
-## Act II --- The Rest of His Life
+### Act II --- The Rest of His Life
 
 She graduated soon after that, and moved west to pursue her new career. Remember I already told you: they never fucked again. But they did stay in touch, mostly over text. Really, the shift to text is what saved the friendship, though dwelling on precisely how that happened would be a different kind of story. This story is about the sex part, not the friendship part of the relationship.
 
