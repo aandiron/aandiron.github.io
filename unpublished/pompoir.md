@@ -5,6 +5,8 @@ title: The Stories of A. Andiron
 
 ## Pompoir
 
+### Or, The Douche
+
 On our third date I told her, "You know, you really have an exceptionally pretty face."
 
 She stirred her drink and half-grinned at me, "If you keep saying nice things to me, you're going to have a very good night."
