@@ -1,0 +1,5 @@
+title: The Stories of A.Andiron
+description: Weird erotica for when you need monsters, heavy metal sex, and tortured metaphors in your bedroom.
+show_downloads: false
+google_analytics: G-EEX5TGZ7GT # I don't think this does anything since the google analytics tag script is pasted into _includes/head-custom-google-analytics.html where it overrides the theme file
+theme: jekyll-theme-tactile
