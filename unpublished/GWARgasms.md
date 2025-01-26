@@ -59,6 +59,8 @@ I remember yelling in your ear, so you could hear me over the blast of heavy met
 
 You nodded, with your eyes closed, and biting your lip.
 
+I suspect that to this day you have no notion of how in love with you I was in that one wild wet moment.
+
 And then I remember you shaking violently against me, biting your lip harder, and I knew you were cumming, and that made me cum. And in a weird coincidence just at that moment, GWAR leaned over one of their decapitated puppets that was spraying blood and hit us both right in the face and chest.
 
 I remember feeling like we were both swimming in sweat and blood and pussy and cum.
