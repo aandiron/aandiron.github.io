@@ -39,7 +39,7 @@ And you can have that experience at any decent metal show. But at GWAR, the tect
 
 I remember in those first few moments you looked back at me with fear in your eyes. But I tensed my muscles and threw out my elbows, and dug in my feet. I held you in position against he push and pull and sway of the crowd. By the end of the first song you realized that while there was no question it was a physically crazy experience, you weren't at (much) risk of having the wind knocked out of you, or a bone broken, or any other kind of serious injury.
 
-By the second song, the most aggressive energetic edge had come off the crowd, and you were clearly enjoying yourself. This is about the time that I suspected maybe your physical experience was maybe a bit more than met my eye. Sure, we were being crushed against each other in that pit of blood, but you also pressed your ass back against me, sliding your little hands down my thighs. And I distinctly remember the movement of your body, against me, but also pressing against whomever happened to be in front of you at that moment (man or woman or unspecified, troll or stud or pixie or punk) grinding up against them as much or more than I was being pressed against you by the pressure from behind.
+By the second song, the most aggressive energetic edge had come off the crowd, and you were clearly enjoying yourself. This is about the time that I suspected your physical experience was maybe a bit more than met my eye. Sure, we were being crushed against each other in that pit of blood, but you also pressed your ass back against me, sliding your little hands down my thighs. And I distinctly remember the movement of your body, against me, but also pressing against whomever happened to be in front of you at that moment (man or woman or unspecified, troll or stud or pixie or punk) grinding up against them as much or more than I was being pressed against you by the pressure from behind.
 
 I remember at the breakdown of the second song, when the energy and pressure of the crowd relented somewhat, you turned and pulled me down to kiss you. And I slide my hands under the bulbs of your ass, my fingers slipping into the cleft just where the curve of your ass meets the top of your legs --- that spot that I know turns you on so much --- and I lifted you. You threw your legs around me, and I utilized the pressure of the crowd to press your body hard against mine until I could feel your nipples against my chest through my wet t-shirt. 
 
@@ -65,7 +65,7 @@ You nodded, with your eyes closed, and biting your lip.
 
 I suspect that to this day you have no notion of how in love with you I was in that one wild wet moment.
 
-And then I remember you shaking violently against me, biting your lip harder, and I knew you were cumming, and that made me cum. And in a weird coincidence just at that moment, GWAR leaned over one of their decapitated puppets that was spraying blood and hit us both right in the face and chest.
+And then I remember you shaking violently against me, biting your lip harder, and I knew you were cumming, and that made me cum. And in a weird coincidence just at that moment, GWAR leaned one of their decapitated puppets, spraying blood everywhere and hitting us both right in the face and chest.
 
 I remember feeling we were both swimming in sweat and blood and pussy and cum.
 
