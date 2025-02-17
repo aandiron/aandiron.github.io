@@ -5,14 +5,19 @@ title: The Stories of A. Andiron
 
 ## Say my Name
 
-It's hardly ever talked about, but everyone instinctively knows there's power in saying someone's name. It's so well known that it is a trope in sitcoms: someone says the wrong name out loud when two characters are kissing, shenanigans ensue. It's a trope, but the power is real. The person who speaks the wrong name in the wrong moment in real life can destroy things.
+It's hardly ever talked about, but everyone instinctively knows names have power. Think about the old sitcom trope: someone says the wrong name out loud when two characters are kissing, shenanigans ensue. It's a trope, but the power is real. The person who speaks the wrong name in the wrong moment in real life can destroy things.
 
-But saying a name has the power to create as well as destroy. It's a deeply human thing to whisper aloud the name of the person you fantasize about being with. Often not just once, but many times, sometimes repeating until it becomes almost a chant. And what is that if not an attempt at manifestation? We're all naked and alone in our beds, whispering the name of the one we long to be with, and maybe we all know that isn't going to make them suddenly appear radiantly before us, but when we close our eyes and chant a name we are absolutely trying to summon the subconscious version of that person up from the liminal dream space and into our present consciousness. And the effect is real. With enough chanting, the presence of the person arrives, and that affects you physically: that presence makes your body _move_.
+But saying a name has the power to create as well as destroy. And it is a very human thing to do. Alone, in the dark, we say the name of the one we crave. Not just once, but over and over, until it’s no longer just a sound, it’s an invocation. A spell. A summoning. And if we say it enough, they appear --- not in flesh, but in sensation, in heat. And that sensation is real enough to bring on physical effects.
 
-When I close my eyes and say your name, it pulls the dream-you to me. I say your name and you are stripping your clothes off for me. I say your name and you are naked in the bed with me, spreading your legs. I say your name and I can feel your lips against mine, my hands slipping over your thighs, your curves under my hands, your body pressed tightly against me. I say your name and you make me cum.
+When I close my eyes and say your name, it pulls the dream-you to me.
 
-I like to think you are doing the same. You say my name, you say it over and over. You say it in a breathy whisper because somehow that makes it more potent. You say my name and the dream-me pops into your head. And when you say my name, you know the dream-me wants nothing but you, and you know it because I'm naked and hard above you, whispering my desire for you into your ear. You say my name and open your legs to take me in and dream-me fully _takes_ you. Carries you off to another place where it is just you and me, and you know that you are the only thing I ever wanted. And in that place I wanted you so badly that when you say my name all you can feel is me inside you, pressing every aspect of my dream-being into you until you cum saying my name.
+I say your name, and you’re stripping for me, baring the body that still swims in the deep parts of my dreams. I say your name, and you’re crawling onto my lap, your thighs spreading, your lips parting as they press against mine. I say your name, and you’re naked above me, spreading your legs, opening your body to me. I can feel your curves passing under my hands, and your body pressing against me. I say your name, and you shudder, moan, and break apart in the tight grip of my hands. I say your name and you make me come against you. 
 
+Now I want you to say my name. Repeat it, again and again. Say it in a breathy whisper --- because somehow that makes it more potent. 
+
+When you say my name the dream-me slips into your mind. When you say my name, I'll be naked and hard above you, whispering in your ear all the nuance of your body and your beauty that make me lust for you. Say my name, and my hands will spread you open, and you will prepare yourself to take me in. 
+
+But the dream-me you have summoned suddenly takes you instead, carries you off to another place outside time where we are alone together. In that place, I will stretch you and fill you, until you feel yourself splitting apart and coming back together in wave after wave of wet pleasure. And you will hear me say your name, with such desire in my voice that you will suddenly know why I stole you away from everything else --- because when you say my name, I want you entirely to myself. 
 
 
 
