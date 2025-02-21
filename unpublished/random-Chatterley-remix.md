@@ -4,7 +4,8 @@ title: The Stories of A. Andiron
 ---
 
 ## Random remix of Lady Chatterley
-
+  
+  
 **You said to ChatGPT:**
 
 _I used the python script you gave me to randomly pull these 25 sentences from Lady Chatterley's Lover:_
