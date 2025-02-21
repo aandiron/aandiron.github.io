@@ -5,130 +5,50 @@ title: The Stories of A. Andiron
 
 ## Random remix of Lady Chatterley
 
-**You said:**
+**You said to ChatGPT:**
 
 _I used the python script you gave me to randomly pull these 25 sentences from Lady Chatterley's Lover:_
-
-Connie gave him one of hers.
-
-But I hear that in the village
-the women call away their children if he is passing, as if he were the
-Marquis de Sade in person.
-
-It was all part of the general catastrophe.
-
-And yet was he not in a way to blame?
-
-The people were as
-haggard, shapeless, and dreary as the countryside, and as unfriendly.
-Only there was something in their deep-mouthed slurring of the dialect,
-and the thresh-thresh of their hobnailed pit-boots as they trailed
-home in gangs on the asphalt from work, that was terrible and a bit
-mysterious.
-
-There had been no welcome home for the young squire, no festivities, no
-deputation, not even a single flower.
-
-No wonder she cried!"
-
-He looked into Connie's eyes, laconic, contemptuous, not hiding his
-feelings.
-
-But if he made electric power, could he
-sell that or use it?
-
-A kind of terror
-filled her sometimes, a terror of the incipient insanity of the whole
-civilised species.
-
-But now that Clifford was drifting off to this other weirdness of
-industrial activity, becoming almost a _creature_, with a hard,
-efficient shell of an exterior and a pulpy interior, one of the amazing
-crabs and lobsters of the modern, industrial and financial world,
-invertebrates of the crustacean order, with shells of steel, like
-machines, and inner bodies of soft pulp, Connie herself was really
-completely stranded.
-
-She was not even free, for Clifford must have her there.
-
-Michaelis turned up
-like a bad penny.
-
-She woke up greyly, and watched,
-but without making a sound to disturb Sir Clifford.
-
-The daylight began to rustle into the world, and the dark figure seemed
-to go smaller and more defined.
-
-He was a reader after all.
-
-The sun fell on her naked limbs through the gable window.
-
-The housekeeper's
-husband, who had known him as a boy, helped him, and did any heavy
-lifting; but Connie did the personal things, and she did them
-willingly.
-
-Connie looked at him, and
-almost cried with anger.
-
-The physical desire he did not satisfy
-in her; he was always come and finished so quickly, then shrinking down
-on her breast, and recovering somewhat his effrontery while she lay
-dazed, disappointed, lost.
-
-But then she soon learnt to hold him, to keep him there inside her when
-his crisis was over.
-
-I like it!
-
-"Pale beyond porch and portal" ...
-
-But the mother hen pecked at her hand
-fiercely, and Connie drew back startled and frightened.
-
-"How she pecks at me!
-
-Bolton was thrilled.
-
-"Look what beautiful brushes, so expensive, even the shaving brushes,
-three perfect ones!
-
-"It seems to fit
-flowers so much better than Greek vases."
-
-"Ravished is such a horrid word!" she said.
-
-Is Duncan Forbes so keen on his spawn?"
-
-"Surely keener than you would be," she said.
-
-"But really?
-
-But they all _want_ to separate a woman and a
-man, if they're together."
-
-"If they're physically together," said Connie.
-
-"That's right my Lady!
-
-Not so much of her mother in her as in
-Hilda.
-
-As everybody says, the Notts-Derby miners have got their
-    hearts in the right place.
-
-Desire for
-sensation, or the anticipation of going to Venice?"
-
-"Both!
-
-I was supposed to be a clever sort of young
-fellow from Sheffield Grammar School, with a bit of French and German,
-very much up aloft.
-
-Come and have an ice cream
-or something!
+- Connie gave him one of hers.
+- But I hear that in the village the women call away their children if he is passing, as if he were the Marquis de Sade in person.
+- It was all part of the general catastrophe.
+- And yet was he not in a way to blame?
+- The people were as haggard, shapeless, and dreary as the countryside, and as unfriendly.  Only there was something in their deep-mouthed slurring of the dialect, and the thresh-thresh of their hobnailed pit-boots as they trailed home in gangs on the asphalt from work, that was terrible and a bit mysterious.
+- There had been no welcome home for the young squire, no festivities, no deputation, not even a single flower.
+- No wonder she cried!"
+- He looked into Connie's eyes, laconic, contemptuous, not hiding his feelings.
+- But if he made electric power, could he sell that or use it?
+- A kind of terror filled her sometimes, a terror of the incipient insanity of the whole civilised species.
+- But now that Clifford was drifting off to this other weirdness of industrial activity, becoming almost a _creature_, with a hard, efficient shell of an exterior and a pulpy interior, one of the amazing crabs and lobsters of the modern, industrial and financial world, invertebrates of the crustacean order, with shells of steel, like machines, and inner bodies of soft pulp, Connie herself was really completely stranded.
+- She was not even free, for Clifford must have her there.
+- Michaelis turned up like a bad penny.
+- She woke up greyly, and watched, but without making a sound to disturb Sir Clifford.
+- The daylight began to rustle into the world, and the dark figure seemed to go smaller and more defined.
+- He was a reader after all.
+- The sun fell on her naked limbs through the gable window.
+- The housekeeper's husband, who had known him as a boy, helped him, and did any heavy lifting; but Connie did the personal things, and she did them willingly.
+- Connie looked at him, and almost cried with anger.
+- The physical desire he did not satisfy in her; he was always come and finished so quickly, then shrinking down on her breast, and recovering somewhat his effrontery while she lay dazed, disappointed, lost.
+- But then she soon learnt to hold him, to keep him there inside her when his crisis was over.
+- I like it!
+- "Pale beyond porch and portal" ...
+- But the mother hen pecked at her hand fiercely, and Connie drew back startled and frightened.
+- "How she pecks at me!
+- Bolton was thrilled.
+- "Look what beautiful brushes, so expensive, even the shaving brushes, three perfect ones!
+- "It seems to fit flowers so much better than Greek vases."
+- "Ravished is such a horrid word!" she said.
+- Is Duncan Forbes so keen on his spawn?"
+- "Surely keener than you would be," she said.
+- "But really?
+- But they all _want_ to separate a woman and a man, if they're together."
+- "If they're physically together," said Connie.
+- "That's right my Lady!
+- Not so much of her mother in her as in Hilda.
+- As everybody says, the Notts-Derby miners have got their hearts in the right place.
+- Desire for sensation, or the anticipation of going to Venice?"
+- "Both!
+- I was supposed to be a clever sort of young fellow from Sheffield Grammar School, with a bit of French and German, very much up aloft.
+- Come and have an ice cream or something!
 
 
 **ChatGPT said:**  
