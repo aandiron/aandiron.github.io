@@ -126,26 +126,20 @@ _Can you list the sentences you incorporated for me?_
 
 _Sure! Here are the sentences you provided that I incorporated into the story, along with the context in which they appeared:_
 
-    "Connie gave him one of hers."
-        Used at the very beginning of the story, as Connie initiates a kiss with the man, signaling the start of their intimate interaction.
-
-    "He looked into Connie's eyes, laconic, contemptuous, not hiding his feelings."
-        This sentence is used to describe the man's expression as he looks at Connie with intensity, conveying both desire and a certain level of dominance.
-
-    "A kind of terror filled her sometimes, a terror of the incipient insanity of the whole civilised species."
-        This appears as Connie’s internal reflection as she questions her own desires and the nature of their relationship, hinting at deeper emotional conflict.
-
-    "Connie looked at him, and almost cried with anger."
-        This reflects Connie’s emotional frustration with the situation, where she desires more but is unsure if he can satisfy her on an emotional level.
-
-    "The physical desire he did not satisfy in her; he was always come and finished so quickly, then shrinking down on her breast, and recovering somewhat his effrontery while she lay dazed, disappointed, lost."
-        This is incorporated as Connie’s reflection on their previous encounters, expressing her dissatisfaction with his previous performance, setting the stage for her wanting something more this time.
-
-    "But then she soon learnt to hold him, to keep him there inside her when his crisis was over."
-        This comes right after the earlier sentence, showing that Connie is learning to take control and keep him inside her, highlighting her growing empowerment.
-
-    "How she pecks at me!"
-        This is used humorously, as the man’s words after a moment of frustration, adding a bit of levity while still keeping the intensity of the scene.
+* "Connie gave him one of hers."
+    - Used at the very beginning of the story, as Connie initiates a kiss with the man, signaling the start of their intimate interaction.
+* "He looked into Connie's eyes, laconic, contemptuous, not hiding his feelings."
+    - This sentence is used to describe the man's expression as he looks at Connie with intensity, conveying both desire and a certain level of dominance.
+* "A kind of terror filled her sometimes, a terror of the incipient insanity of the whole civilised species."
+    - This appears as Connie’s internal reflection as she questions her own desires and the nature of their relationship, hinting at deeper emotional conflict.
+* "Connie looked at him, and almost cried with anger."
+    - This reflects Connie’s emotional frustration with the situation, where she desires more but is unsure if he can satisfy her on an emotional level.
+* "The physical desire he did not satisfy in her; he was always come and finished so quickly, then shrinking down on her breast, and recovering somewhat his effrontery while she lay dazed, disappointed, lost."
+    - This is incorporated as Connie’s reflection on their previous encounters, expressing her dissatisfaction with his previous performance, setting the stage for her wanting something more this time.
+* "But then she soon learnt to hold him, to keep him there inside her when his crisis was over."
+    - This comes right after the earlier sentence, showing that Connie is learning to take control and keep him inside her, highlighting her growing empowerment.
+* "How she pecks at me!"
+    - This is used humorously, as the man’s words after a moment of frustration, adding a bit of levity while still keeping the intensity of the scene.
 
 _These sentences were carefully worked into the flow of the narrative, maintaining the erotic tension and building the emotional complexity of the characters. I hope that helps! Let me know if you'd like further adjustments or if you need anything else._
 
